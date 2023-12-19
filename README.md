@@ -249,7 +249,7 @@ Do any quadrants contain Figures, like those seen in the Court cards or tableaux
 After completing the full spread, you might find that one of your twelve houses warrants a closer look. This year, everyone may benefit by touring the house that corresponds to the Strength card (8th House) and the house of their sun sign. This mini-spread inspired by the themes of the four quadrants is one way to start.
 ![TAROT_ The Twelve Houses Spread (7)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/95b942e8-d9e3-4fab-9ff0-753a598a031c)
 
-SELF: A dominant energy or expression of this house in your life, currently.
-ORIGINS: An external factor (past or present) affecting concerns governed by this house 
-OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
-SHADOWS: An unacknowledged aspect of this house, positive or negative, that you’re ready to integrate
+1. SELF: A dominant energy or expression of this house in your life, currently.
+2. ORIGINS: An external factor (past or present) affecting concerns governed by this house
+3. OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
+4. SHADOWS: An unacknowledged aspect of this house, positive or negative, that you’re ready to integrate
