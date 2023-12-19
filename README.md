@@ -154,3 +154,102 @@ A year that will require collective strength.
 Build an affinity group. 
 Accountability– ritual apologies. (“Apology without change is manipulation.”)
 Alignment– check yourself. Break up with plastics.
+
+## TAROT The Twelve Houses Spread
+Zodiac spreads take us on a journey from our innermost selves in the First House, through the house governing our relationships and careers, into the more mysterious matters of the 12th House. Each house corresponds to a sign, therefore the spread also takes us through a complete year that begins with Aries season in March. Use this spread to get a sense of how things stand in all aspects of your life and decide where to go deeper in the coming year. 
+![TAROT_ The Twelve Houses Spread (6)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/a7ea76cd-8d4f-4bb3-bab7-80a40650a73c)
+
+### Before you begin
+This spread is complex, not gonna lie. Reading it gets both easier and richer the more you understand astrology and your birth chart, and yet puzzling through this spread is one way to build expertise. Stick with it, in other words, and turn to the brilliant works listed in Resources and References whenever you feel lost. 
+
+Place all cards face down, starting at the First House and moving counter-clockwise to pull a card for each successive house. Placing all cards face-up will overwhelm the reading, believe! Lay out the complete map and then take the journey one step at a time.
+
+A note on timing: zodiac spreads have a few periods in the year when they feel most helpful. First, the start of a new year in whatever calendars you use (Gregorian, lunar, Jewish, etc.) as well as in Aries season (aka the spring equinox and astrological “new year”) and near your birthday. Secondly, any other time you experience a major reset event such as a big move, change in your relationship status, career shift, etc. 
+
+We do not recommend zodiac spreads at the birth/adoption of a child when done for the child! Tarot readings generally cannot be done without the consent and participation of a key subject, anyway, and this spread isn’t meant to deliver lifelong predictions. (Get a natal chart analysis instead.) However, this spread may be very helpful for the new parent to get insight into this period of their own lives.
+
+Lastly, we fully encourage you to riff on the prompts below to match any question you have for that house. For instance, someone who recently “came out” (in any sense of the phrase) may have a very clear concern to explore in their First House. We offer several questions for each card in hopes that one of them feels right for you for that reading. Get inspired and trust your intuition. 
+
+
+![TAROT_ The Twelve Houses Spread (5)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/6859c927-6325-474e-b74f-183ee312a81c)
+
+
+Enough. Let’s begin!
+### Below the horizon
+1 HOUSE OF IDENTITIES ASCENDANT
+What area of personal growth would most benefit from attention now? Where do I need to cultivate more self-confidence, or express myself with greater authenticity? How do I need to change, perhaps dramatically?
+CARDINAL FIRE + MARS + ARIES // THE EMPEROR + THE TOWER
+2 HOUSE OF PRACTICALITIES
+How am I supported, and where do I lack support? What aspect of my life deserves more pleasure and ease? Where does stubbornness or stale belief hold me back from achievement and growth? Am I too attached? 
+FIXED EARTH + VENUS + TAURUS // THE EMPRESS + THE HIEROPHANT
+3 HOUSE OF COMMUNION
+Do my friendships and community serve my highest self? Do I serve theirs? How do my communication patterns impact my relationships? Where do I step up, or maybe step back, in collaborations? Am I in love? 
+MUTABLE AIR + MERCURY + GEMINI // THE MAGICIAN + THE LOVERS
+4 HOUSE OF BELONGING IMUM COELI (IC)
+An emotional vibe check placement. How am I doing, in the most holistic sense imaginable? Is my “home” stable, meaning both practically secure (finances, agreements) and well-regulated (low drama, cheery)? 
+CARDINAL WATER + THE MOON + CANCER // THE HIGH PRIESTESS + THE CHARIOT + THE MOON
+5 HOUSE OF CREATIVITIES
+Where and when do my unique gifts shine? How confident do I feel sharing myself, authentically? Does my creativity get enough attention? Should I take the next step in a project? What am I so afraid of?
+FIXED FIRE + THE SUN + LEO // STRENGTH + THE SUN
+6 HOUSE OF EMBODIMENTS
+Do my habits support my physical and mental health? How healthy do I feel, regardless of what a doctor might say? What energy or practice will help me enjoy my body more fully? Where can I release perfectionism? 
+MUTABLE EARTH / MERCURY / VIRGO // THE MAGICIAN + THE HERMIT
+Above the horizon
+7 HOUSE OF PARTNERSHIPS DESCENDANT
+Do I form trustworthy partnerships? How well do my boundaries serve my well-being? What area of my life faces conflict, and therefore offers growth? Where can I better show up for community? Where do I have more to offer?
+CARDINAL AIR + VENUS + LIBRA  // THE EMPRESS + JUSTICE 
+8 HOUSE OF TRANSFORMATIONS
+What pattern can I release? What energy do I need to call in or let flow out of me? Where has my rigidity or desire for control hurt me or others? How have I grown in the period of my life now ending? How’s my sex life?
+FIXED WATER + PLUTO + SCORPIO // DEATH + JUDGMENT
+9 HOUSE OF PHILOSOPHIES
+Do my actions align with my ethics? How open am I (or should I be) for experiences that expand my perspective like travel, education, discomfort? Am I in a rut? Or is this a season for trust? What can I teach others? 
+MUTABLE FIRE + JUPITER + SAGITTARIUS // THE WHEEL OF FORTUNE + TEMPERANCE
+10 HOUSE OF LEGACIES MEDIUM COELI (MC)
+Have I honored my responsibilities? What area of my life merits more discipline, and which needs less compulsive fixation? Do I set and keep meaningful goals appropriately? Where should I lighten up? Buckle down?
+CARDINAL EARTH + SATURN + CAPRICORN // THE DEVIL + THE WORLD
+11 HOUSE OF COLLABORATORS
+Vast communities hold and nurture us– societies and ecologies, internal and ancestral. How well do I treat my collaborators? What’s one aspect that deserves extra appreciation? How can I improve my communal presence?
+FIXED AIR + URANUS + AQUARIUS // THE FOOL + THE STAR
+12 HOUSE OF MYSTERIES
+Dreams, fantasies, wishes, regrets, inner voices, and callings. What intuitive aspect of my life has the greatest power over me now? Do I need to manifest this energy, or release it? Where can I let intuition guide me?  
+MUTABLE WATER + NEPTUNE + PISCES // THE HANGED ONE + THE MOON
+### Notes on interpreting the spread
+Do a vibe check on the groupings and placements discussed below. Look for associated Major Arcana cards, a preponderance of cards from the same suit, your COTY, and of course, Strength. Does this add nuance or noise? Your gut will tell you.
+#### HOUSE GROUPINGS
+Dividing the sky into twelve parts creates a symmetry to explore for even more insight. Houses that oppose or mirror one another form groups with their particular significance:
+> Angular Houses (1, 4, 7, 10) represent areas to take initiative and embrace greater prominence. 
+> Succedent Houses (2, 5, 8, 11) show us places to trust for stability and support when we focus.
+> Cadent Houses (3, 6, 9, 12) imply fluidity. Here, we benefit from adaptivity and cooperation.
+#### THE ANGLES
+We made a note of where  the Ascendant, Descendant, Imum Coeli (IC), and Medium Coeli (MC) sit in the spread because they too carry unique significance that may enhance your reading:
+> Ascendant reflects your point of view, whether conscious or unconscious.
+> IC might indicate an energy/resource/relationship that is a stabilizing foundation or entrenched pattern.
+> Descendant highlights the influence of (or impact on) your relationship/s.
+> MC emphasizes the power of legacies (inheritances we receive or bestow, reputations, etc.)
+#### OPPOSING HOUSES
+Astrologers offer one further–and simpler!– grouping to consider, the opposing house pairs:
+> Identity and Ally (Houses 1 and 7) connect a part of yourself with a supporter.
+> Cause and Effect (Houses 2 and 8) show how your choice has ripple effects.
+> Friends and High Places (Houses 3 and 9) identify connections and how they shape your opportunities.
+> Intention and Impact (Houses 4 and 10), aka “how it started” and “how it's going”
+> Spark and Bellows (Houses 5 and 11) illuminate your creative spark and who/what fans its flames.
+> Body and Soul (Houses 6 and 12) unite your embodied self and inner realms.
+
+Calling these houses opposing implies antagonism and contradiction although complementing is more accurate in our opinion. We think they’re more dynamic-duo than arch-enemies and hey, sometimes couples fight! That doesn’t mean they don’t love you.
+#### CROWDED QUADRANTS
+The horizon and meridian split the sky into four quadrants, each with three houses that cluster around a theme. We’ve named them according to our interpretations below to get you started, but you’ll find any number of other names and meanings out there. Choose one that inspires you. Astrologers generally concur that the houses begin with themes related to the self, progress through the practical matters of maturity, and finish with self-realization and shadow work.
+
+(Remember that astrological charts invert and reverse the standard orientation found on most maps– up is down, right is left– and we move counterclockwise around the chart.)
+
+
+
+
+Do any quadrants contain Figures, like those seen in the Court cards or tableaux-heavy cards such as The Six of Pentacles? How would you characterize (sorry) their relationships, and does that add anything to your reading? A crowded quadrant may signify a theme that needs your attention, especially if the other quadrants look lonely by comparison.
+### The Open House Mini-Spread
+After completing the full spread, you might find that one of your twelve houses warrants a closer look. This year, everyone may benefit by touring the house that corresponds to the Strength card (8th House) and the house of their sun sign. This mini-spread inspired by the themes of the four quadrants is one way to start.
+![TAROT_ The Twelve Houses Spread (7)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/95b942e8-d9e3-4fab-9ff0-753a598a031c)
+
+SELF: A dominant energy or expression of this house in your life, currently.
+ORIGINS: An external factor (past or present) affecting concerns governed by this house 
+OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
+SHADOWS: An unacknowledged aspect of this house, positive or negative, that you’re ready to integrate
