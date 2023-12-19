@@ -1,4 +1,6 @@
-# Strength: Tarot, astrology, and ritual for our collective card of the year in 2024
+# Strength
+
+## Tarot, astrology, and ritual for our collective card of the year in 2024
 
 TABLE OF CONTENTS
 
