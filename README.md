@@ -176,7 +176,7 @@ Lastly, we fully encourage you to riff on the prompts below to match any questio
 
 Enough. Let’s begin!
 ### Below the horizon
-1 HOUSE OF IDENTITIES ASCENDANT 
+1 HOUSE OF IDENTITIES ASCENDANT  }}}}}}}}}
 What area of personal growth would most benefit from attention now? Where do I need to cultivate more self-confidence, or express myself with greater authenticity? How do I need to change, perhaps dramatically? 
 CARDINAL FIRE + MARS + ARIES // THE EMPEROR + THE TOWER
 
