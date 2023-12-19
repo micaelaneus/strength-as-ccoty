@@ -233,15 +233,16 @@ MUTABLE WATER + NEPTUNE + PISCES // THE HANGED ONE + THE MOON
 Do a vibe check on the groupings and placements discussed below. Look for associated Major Arcana cards, a preponderance of cards from the same suit, your COTY, and of course, Strength. Does this add nuance or noise? Your gut will tell you.
 #### HOUSE GROUPINGS
 Dividing the sky into twelve parts creates a symmetry to explore for even more insight. Houses that oppose or mirror one another form groups with their particular significance:
-> Angular Houses (1, 4, 7, 10) represent areas to take initiative and embrace greater prominence. 
-> Succedent Houses (2, 5, 8, 11) show us places to trust for stability and support when we focus.
-> Cadent Houses (3, 6, 9, 12) imply fluidity. Here, we benefit from adaptivity and cooperation.
+1. Angular Houses (1, 4, 7, 10) represent areas to take initiative and embrace greater prominence.
+2. Succedent Houses (2, 5, 8, 11) show us places to trust for stability and support when we focus.
+3. Cadent Houses (3, 6, 9, 12) imply fluidity. Here, we benefit from adaptivity and cooperation.
 #### THE ANGLES
 We made a note of where  the Ascendant, Descendant, Imum Coeli (IC), and Medium Coeli (MC) sit in the spread because they too carry unique significance that may enhance your reading:
-> Ascendant reflects your point of view, whether conscious or unconscious.
-> IC might indicate an energy/resource/relationship that is a stabilizing foundation or entrenched pattern.
-> Descendant highlights the influence of (or impact on) your relationship/s.
-> MC emphasizes the power of legacies (inheritances we receive or bestow, reputations, etc.)
+1. Ascendant reflects your point of view, whether conscious or unconscious.
+2. IC might indicate an energy/resource/relationship that is a stabilizing foundation or entrenched pattern.
+3. Descendant highlights the influence of (or impact on) your relationship/s.
+4. MC emphasizes the power of legacies (inheritances we receive or bestow, reputations, etc.)
+   
 #### OPPOSING HOUSES
 Astrologers offer one further–and simpler!– grouping to consider, the opposing house pairs:
 > Identity and Ally (Houses 1 and 7) connect a part of yourself with a supporter.
