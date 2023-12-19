@@ -11,6 +11,10 @@
 8. Now What? Keep working!
 9. Resources & References
 
+## About Touchwood Tarot
+We practice a mythopoetic style of working with tarot and astrology that seeks to balance light with shadow in all matters. Our approach focuses on promoting growth, communal well-being, and shadow work. This guide stays mostly agnostic so that our otherworldly beliefs or practices never get in the way of your practice. Use tarot and astrology as tools to enrich your experience of life, and don’t worry too much about outside opinions. (For many reasons, we do not do divination.) Tarot practices presented here exist to help you clarify your unique embodied intuition. We hope you find your powers and wield them for the collective good. Merry met, witches!
+
+
 ## How to Use This Guide
 ### Gather your supplies
 #### GET A JOURNAL
@@ -294,7 +298,6 @@ Each card connotes a flavor of yes-no-maybe. Adapt it to signify how much effort
 ## TAROT The Mutual Strength Spread
 Distinguishing strength from stubbornness is easy: simply notice how well you’ve listened to the other side of the argument. We designed this spread to guide an intuitive investigation into how you and your partner see the situation, where your values clash, and what you might learn from one another through skillful disagreement. Tarot cannot replace communication and engagement, but it can get you re-centered when things go off the rails. 
 ![TAROT_ The Mutual Strength Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/8987e540-c6a6-424e-9a72-2d57588e197f)
-
 
 Get the full story
 Pull cards to establish how the Figure (Card 1) and the Lion (Card 2) feel presently. 
