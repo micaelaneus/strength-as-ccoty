@@ -176,40 +176,50 @@ Lastly, we fully encourage you to riff on the prompts below to match any questio
 
 Enough. Let’s begin!
 ### Below the horizon
-1 HOUSE OF IDENTITIES ASCENDANT
-What area of personal growth would most benefit from attention now? Where do I need to cultivate more self-confidence, or express myself with greater authenticity? How do I need to change, perhaps dramatically?
+1 HOUSE OF IDENTITIES ASCENDANT 
+What area of personal growth would most benefit from attention now? Where do I need to cultivate more self-confidence, or express myself with greater authenticity? How do I need to change, perhaps dramatically? 
 CARDINAL FIRE + MARS + ARIES // THE EMPEROR + THE TOWER
+
 2 HOUSE OF PRACTICALITIES
 How am I supported, and where do I lack support? What aspect of my life deserves more pleasure and ease? Where does stubbornness or stale belief hold me back from achievement and growth? Am I too attached? 
 FIXED EARTH + VENUS + TAURUS // THE EMPRESS + THE HIEROPHANT
+
 3 HOUSE OF COMMUNION
 Do my friendships and community serve my highest self? Do I serve theirs? How do my communication patterns impact my relationships? Where do I step up, or maybe step back, in collaborations? Am I in love? 
 MUTABLE AIR + MERCURY + GEMINI // THE MAGICIAN + THE LOVERS
+
 4 HOUSE OF BELONGING IMUM COELI (IC)
 An emotional vibe check placement. How am I doing, in the most holistic sense imaginable? Is my “home” stable, meaning both practically secure (finances, agreements) and well-regulated (low drama, cheery)? 
 CARDINAL WATER + THE MOON + CANCER // THE HIGH PRIESTESS + THE CHARIOT + THE MOON
+
 5 HOUSE OF CREATIVITIES
 Where and when do my unique gifts shine? How confident do I feel sharing myself, authentically? Does my creativity get enough attention? Should I take the next step in a project? What am I so afraid of?
 FIXED FIRE + THE SUN + LEO // STRENGTH + THE SUN
+
 6 HOUSE OF EMBODIMENTS
 Do my habits support my physical and mental health? How healthy do I feel, regardless of what a doctor might say? What energy or practice will help me enjoy my body more fully? Where can I release perfectionism? 
 MUTABLE EARTH / MERCURY / VIRGO // THE MAGICIAN + THE HERMIT
-Above the horizon
+### Above the horizon
 7 HOUSE OF PARTNERSHIPS DESCENDANT
 Do I form trustworthy partnerships? How well do my boundaries serve my well-being? What area of my life faces conflict, and therefore offers growth? Where can I better show up for community? Where do I have more to offer?
 CARDINAL AIR + VENUS + LIBRA  // THE EMPRESS + JUSTICE 
+
 8 HOUSE OF TRANSFORMATIONS
 What pattern can I release? What energy do I need to call in or let flow out of me? Where has my rigidity or desire for control hurt me or others? How have I grown in the period of my life now ending? How’s my sex life?
 FIXED WATER + PLUTO + SCORPIO // DEATH + JUDGMENT
+
 9 HOUSE OF PHILOSOPHIES
 Do my actions align with my ethics? How open am I (or should I be) for experiences that expand my perspective like travel, education, discomfort? Am I in a rut? Or is this a season for trust? What can I teach others? 
 MUTABLE FIRE + JUPITER + SAGITTARIUS // THE WHEEL OF FORTUNE + TEMPERANCE
+
 10 HOUSE OF LEGACIES MEDIUM COELI (MC)
 Have I honored my responsibilities? What area of my life merits more discipline, and which needs less compulsive fixation? Do I set and keep meaningful goals appropriately? Where should I lighten up? Buckle down?
 CARDINAL EARTH + SATURN + CAPRICORN // THE DEVIL + THE WORLD
+
 11 HOUSE OF COLLABORATORS
 Vast communities hold and nurture us– societies and ecologies, internal and ancestral. How well do I treat my collaborators? What’s one aspect that deserves extra appreciation? How can I improve my communal presence?
 FIXED AIR + URANUS + AQUARIUS // THE FOOL + THE STAR
+
 12 HOUSE OF MYSTERIES
 Dreams, fantasies, wishes, regrets, inner voices, and callings. What intuitive aspect of my life has the greatest power over me now? Do I need to manifest this energy, or release it? Where can I let intuition guide me?  
 MUTABLE WATER + NEPTUNE + PISCES // THE HANGED ONE + THE MOON
