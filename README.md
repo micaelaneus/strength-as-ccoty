@@ -291,3 +291,24 @@ Strength is about being lion-hearted, not pig-headed. Pull a card to check your 
 8 WHEN YOU DON’T KNOW YOUR OWN STRENGTH
 Each card connotes a flavor of yes-no-maybe. Adapt it to signify how much effort or urgency an aspect deserves.
 
+## TAROT The Mutual Strength Spread
+Distinguishing strength from stubbornness is easy: simply notice how well you’ve listened to the other side of the argument. We designed this spread to guide an intuitive investigation into how you and your partner see the situation, where your values clash, and what you might learn from one another through skillful disagreement. Tarot cannot replace communication and engagement, but it can get you re-centered when things go off the rails. 
+![TAROT_ The Mutual Strength Spread (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/aa04637f-f500-4b97-a64a-d61818739d86)
+
+
+
+Get the full story
+Pull cards to establish how the Figure (Card 1) and the Lion (Card 2) feel presently. 
+
+The next pair reveals an existing strength, expertise, or experience that the Figure (Card 3) and the Lion (Card 4) carry into the exchange that merits consideration. This pairing offers tremendous clues on how to navigate the situation for mutual benefit.
+
+The second set shows a desire, characteristic, or opinion that brings the Figure into conflict with the Lion (Card 5), and one that causes the Lion to struggle with the Figure (Card 6). These placements reveal where their perspectives, values, or motivations clash.
+
+Finally, find an area of prospective growth (lesson, advice, new skill, etc.) that the Figure may have to share with the Lion (Card 7) and conversely, the Lion with the Figure (Card 8). In other words, what they might learn from one another.
+### Do check in
+Sometimes conflicts persist due to meaningful differences in values or needs that require ongoing negotiation. Other times, they’re bad habits we refuse to break. You might want to briefly check in with how things are going in either case and this mini version exists for those moments.
+ 
+![TAROT_ The Mutual Strength Spread (2)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/47b35c64-1756-4359-8fe5-9061ac3ed96d)
+
+Pull cards to check in with the Figure (Card 1) and the Lion (Card 2), then choose an overlapping interest to look at more closely: existing strengths, clashing point-of-views, or potential areas for growth.  
+
