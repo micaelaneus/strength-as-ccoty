@@ -46,7 +46,8 @@ This well-known graphic floating above the Figure’s head connects them to the 
 White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles.  Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure where this simple robe rather than armor or some costly fabric associated with aristocratic lords like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice not afraid of their next rite of passage. Notice that the calm and somewhat inward gaze of the Figure is directed into the lion’s eyes, not outward into our own as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments. 
 #### FLOWERS + WREATHS
 The vibrant foliage adorning the Figure’s waist and crown exudes joy– a bold shout that says, huzzah for Life! In a socio-economic system built on constraint, blossoming takes Strength. Think of the audacity shown by flowers growing along a highway median, pushing up through the asphalt designed to destroy them. Or picture the vivid genitalia-like bloom of the orchid. No shame, baby. Do you have the courage of a dandelion?
-Correspondences
+
+### Correspondences
 #### FIXED FIRE + WANDS
 The active energy of Fire aligns well with the Suit of Wands, which is associated with intuition, craftsmanship, and grassroots political action. Our instinct to challenge ourselves to grow creatively or to break destructive patterns gets a boost from their energies. Unfortunately, these sparks tend to start wildfires when unbalanced. Watch out for workaholism, ambition for its own sake, and a certain impulsive selfishness.
 #### THE SUN + LEO
