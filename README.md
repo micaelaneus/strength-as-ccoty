@@ -263,3 +263,31 @@ After completing the full spread, you might find that one of your twelve houses 
 2. ORIGINS: An external factor (past or present) affecting concerns governed by this house
 3. OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
 4. SHADOWS: An unacknowledged aspect of this house, positive or negative, that you’re ready to integrate
+
+## TAROT Eight Signal Boosters
+Many readers believe the Strength card amplifies any surrounding cards or emphasizes the meaning of that position within the spread. In other words, Strength acts as a “signal booster.” We want to extend that idea this year: pull a final card with any spread to signify an aspect of Strength that you want to add to the reading. We’re giving you eight times when you might benefit from a boost as inspiration.
+
+1 WHEN YOU’D RATHER NOT
+Pull a card to reveal a source of support when facing fears triggered by a spread or one card within it.
+
+2 WHEN YOU WERE PROMISED THERE’D BE CAKE
+A “hard card” appears in a spread position that should have been fun, d’oh! Pull for grace and acceptance.
+
+3 WHEN YOUR NAVEL STARTS TO BORE YOU
+Most folks use tarot for introspection, yet we know it’s not all about us. Pull a card to reconnect with community.
+
+4 WHEN THE PROBLEM IS YOU
+Accountability isn’t just for villains. Pull to find out where you need to take responsibility or get back in your lane. 
+
+5 WHEN YOU GET IT ALREADY
+If you find yourself nodding in agreement for the entire spread, go with it. Pull a card to double up on a key insight.
+
+6 WHEN IT’S A RISK YOU’RE WILLING TO TAKE
+Sometimes any decision beats no decision at all; you just need to make a move. Pull a card like you’re rolling dice. 
+
+7 WHEN YOU’RE ABOUT TO WRECK YOURSELF
+Strength is about being lion-hearted, not pig-headed. Pull a card to check your ego, especially if you feel resistant. 
+
+8 WHEN YOU DON’T KNOW YOUR OWN STRENGTH
+Each card connotes a flavor of yes-no-maybe. Adapt it to signify how much effort or urgency an aspect deserves.
+
