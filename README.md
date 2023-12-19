@@ -105,3 +105,52 @@ You shall listen to all sides and filter them from your self.
 
 	WALT WHITMAN, Song of Myself (1892 version)
  }}
+
+## RITUAL STRATEGIES Tarot, Astrology, & Ritual
+2024 as start of a second line cycle
+### Mineral & Plant Allies 
+Fresh or dried roses and rosewater; edible herbs associated with protection magic such as sage, bay leaf, and rosemary whether eaten or made into altar offerings; frankincense above all other incenses but also smudging plants like mugwort or cedar that have fortifying uses (as opposed to healing or cleansing herbs like sage and palo santo); essential oils containing these herbs. 
+
+Simple teas with acidic or citrusy notes evoke the zesty energy and candor of Strength. Find a lemony tea to drink only while doing creative work (perhaps with ginger or other invigorating herb), to build a sense memory into your practice. Blends that feature Schisandra berries, hibiscus, or even licorice (gentle detox herbs) complement shadow work. Richly fragrant teas dominated by rose or lavender will always make us think of Leo. You might get overly energized at times. Keep calming herbs like chamomile and catnip in the cupboard as well. 
+
+Stones with protective associations like tourmaline, tiger’s eye, and agate; gold-toned minerals like mica, chalcopyrite, and literal gold to activate creativity especially when you hope to make money from the effort; those giant juicy-looking pieces of calcite for connecting with our emotional superpower, joy; hematite for breaking curses like truly destructive relationship patterns or addictions; pyrite when you struggle to walk away from a situation (job, relationship); bronzite for grace under pressure; jade for endurance or equanimity; turquoise when starting new ventures. 
+
+Hardy plants with woody stems make great additions to your altar this year: sprigs of evergreens like pine, juniper, and mistletoe. (No, it’s not just for smooching!) Stout species of brush grow in nearly every climate, so find a new local plant ally. If the element of water rules your Card of the Year (The High Priestess, Death, etc.) then willow, cattails, or other tough marshy plants make nice additions. To those suffering from heartaches or struggling to adapt to a sudden unwelcome change, we recommend getting a Rose of Jericho aka a resurrection plant (Selaginella lepidophylla).
+
+#### SOME CONSIDERATIONS
+Choose only ethically sourced herbs and stones, work within your cultural tradition, and shop locally. Don’t taint your work with those bad vibes, especially in a year ruled by an amplifying archetype like Strength. Remember that ritual items only add gravy– your intentions are the meat and potatoes of this practice.
+
+Stone balance fire and resist some of its more manic or impulsive aspects, so you may find them even more useful this year. Prefer water-safe stones for similar reasons.
+### Astrological Angles
+Personalize how you work with the energies of Strength by incorporating astrology. Get your natal chart (many sources offer them free online, try Astro-Charts or Co–Star) and examine 
+1. Your 8th House
+2. The house ruled by Leo in your chart
+3. The house hosting your Sun 
+
+Take inventory of these areas of your life as they manifest in the external world or internally (beliefs, self-talk patterns). 
+
+For instance, someone with Venus in Leo should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. Maybe they see very literal changes to make such as starting to date again or making some requests in the bedroom. More abstractly, they could choose to begin healing attachment issues or increasing self-love. A secondary area might be aesthetics generally: is your life as beautiful as you desire? A Strength year extends Venus-in-Leo an invitation to revamp their image (wardrobe, social media presence), refresh their home decor, or simply spend more time appreciating the arts. How they RSVP is up to them.
+
+Work through the relevant aspects of your natal chart using our Venus-in-Leo example to inspire you. Each of these astrological elements acts as another lens onto life, a tool to look at yourself from a fresh angle. You may or may not like what you see, and that will tell you where to focus your intentions in the coming year. 
+### Ritual & Spellwork
+This year invites us to perform rituals around increasing our creativity, making bold changes, and breaking bad habits.
+
+Consider refreshing spells and maintaining talismans you’ve put in place for protection. Bless doorways, cleanse your home or other significant space, dust and re-hang wards like nazar amulets, etc. A deep clean of your home, concentrating on areas related to your career and creativity, always feels good. (Yes, we just told you to clean up your desk.) Add purifying allies lemon juice or rosemary oil to your mop bucket, or spritz the rugs with rosewater after beating them out. We have some witchy projects planned this year that we’ll share in the newsletter if you get stuck. 
+
+We strongly associate Strength with curse-breaking. Think of a curse as any pattern that binds you and that you might have inherited from your family of origin or formative peers. For instance, you might break a classic codependent curse like marrying alcoholics using a ritual in combination with therapy. Or you might feel like someone has fixated on you in a very dark way and you need to cut ties energetically. One friend of ours finally threw out their raggedy college futon after ten years and immediately got offered the full-time contract that started his career.
+
+Manifesting has gotten some well-deserved critique in the last few years, and we agree! The idea that wishing for money or new opportunities insults everyone excluded from the capitalist thrill factory, and it degrades the principles of radical witchcraft. That said, using ritual to direct your willpower and put yourself in the right headspace to succeed has value in our eyes. For an endeavor where you acknowledge the role of privilege and have a plan to do the work, rituals to manifest helpers or opportunities make sense in a Strength year. Use this power wisely.
+### Working in the Open Circle
+Magic when we cast the circle is special, but we bring the work with us when the circle opens. We call this open-circle work, or open-circle magic. 
+#### EVERYDAY MAGIC
+Inner Work of Racial Justice
+Literally work out
+Detox from Beauty Culture
+Ableism and ageism
+Speak your truth: pin a post on social media platforms about the coming year.
+
+#### BIG TIME MAGIC
+A year that will require collective strength. 
+Build an affinity group. 
+Accountability– ritual apologies. (“Apology without change is manipulation.”)
+Alignment– check yourself. Break up with plastics.
