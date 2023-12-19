@@ -203,6 +203,7 @@ FIXED FIRE + THE SUN + LEO // STRENGTH + THE SUN
 6 HOUSE OF EMBODIMENTS
 Do my habits support my physical and mental health? How healthy do I feel, regardless of what a doctor might say? What energy or practice will help me enjoy my body more fully? Where can I release perfectionism? 
 MUTABLE EARTH / MERCURY / VIRGO // THE MAGICIAN + THE HERMIT
+
 ### Above the horizon
 7 HOUSE OF PARTNERSHIPS DESCENDANT
 Do I form trustworthy partnerships? How well do my boundaries serve my well-being? What area of my life faces conflict, and therefore offers growth? Where can I better show up for community? Where do I have more to offer?
