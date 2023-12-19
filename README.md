@@ -242,23 +242,21 @@ We made a note of where  the Ascendant, Descendant, Imum Coeli (IC), and Medium 
 2. IC might indicate an energy/resource/relationship that is a stabilizing foundation or entrenched pattern.
 3. Descendant highlights the influence of (or impact on) your relationship/s.
 4. MC emphasizes the power of legacies (inheritances we receive or bestow, reputations, etc.)
-   
-#### OPPOSING HOUSES
+   #### OPPOSING HOUSES
 Astrologers offer one further–and simpler!– grouping to consider, the opposing house pairs:
-> Identity and Ally (Houses 1 and 7) connect a part of yourself with a supporter.
-> Cause and Effect (Houses 2 and 8) show how your choice has ripple effects.
-> Friends and High Places (Houses 3 and 9) identify connections and how they shape your opportunities.
-> Intention and Impact (Houses 4 and 10), aka “how it started” and “how it's going”
-> Spark and Bellows (Houses 5 and 11) illuminate your creative spark and who/what fans its flames.
-> Body and Soul (Houses 6 and 12) unite your embodied self and inner realms.
+- Identity and Ally (Houses 1 and 7) connect a part of yourself with a supporter.
+- Cause and Effect (Houses 2 and 8) show how your choice has ripple effects.
+- Friends and High Places (Houses 3 and 9) identify connections and how they shape your opportunities.
+- Intention and Impact (Houses 4 and 10), aka “how it started” and “how it's going”
+- Spark and Bellows (Houses 5 and 11) illuminate your creative spark and who/what fans its flames.
+- Body and Soul (Houses 6 and 12) unite your embodied self and inner realms.
 
 Calling these houses opposing implies antagonism and contradiction although complementing is more accurate in our opinion. We think they’re more dynamic-duo than arch-enemies and hey, sometimes couples fight! That doesn’t mean they don’t love you.
 #### CROWDED QUADRANTS
 The horizon and meridian split the sky into four quadrants, each with three houses that cluster around a theme. We’ve named them according to our interpretations below to get you started, but you’ll find any number of other names and meanings out there. Choose one that inspires you. Astrologers generally concur that the houses begin with themes related to the self, progress through the practical matters of maturity, and finish with self-realization and shadow work.
 
 (Remember that astrological charts invert and reverse the standard orientation found on most maps– up is down, right is left– and we move counterclockwise around the chart.)
-
-
+![TAROT_ The Twelve Houses Spread (5)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/41d590a6-cabb-4c72-a839-2c964e0ff5f1)
 
 
 Do any quadrants contain Figures, like those seen in the Court cards or tableaux-heavy cards such as The Six of Pentacles? How would you characterize (sorry) their relationships, and does that add anything to your reading? A crowded quadrant may signify a theme that needs your attention, especially if the other quadrants look lonely by comparison.
