@@ -15,31 +15,29 @@ We practice a mythopoetic style of working with tarot and astrology that seeks t
 
 ## How to Use This Guide
 
-### Select a Tarot Deck
+Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find X spreads that combine mythopoetic tarot with evolutionary astrology. We’ve given you several themes you might want to explore in your ritual and spellwork alongside one full ritual to kick off your Strength year. In the final section, we share some ideas on how to extend this collective work by incorporating your personal Card of the Year.  
 
-This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite and originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those three names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS to cover all these cases and whatever you choose to call it, it is the most recognizable version of the Tarot.
+You need only three basic tools to do this work: a journal, a tarot deck, and this guide.
 
-While we believe you’ll get the most from this guide if you have a standard WCS deck to explore, we support your choice to choose another deck from this lineage. Many modern tarot artists have adapted the ideas and storylines of the RWCS deck and we list some of our favorites in Resources and References. You can always refer to the Wikipedia entry for the deck to see an image of each card in its original design.
+Remember that you don’t need to start in January! This work welcomes anyone who shows up, whenever and however they arrive. We begin publishing seasonal guides in March with Aries, the astrological new year. These guides include new journal prompts, altar inspo, and rituals for Strength in each astrological season. Paid subscribers receive guidance on working with their Card of the Year in conjunction with Strength. 
 
-Note that we use the Strength-Justice ordering to interpret The Fool’s Journey, which might alter the meaning for decks with the less common Justice-Strength ordering.
+Join us at LINK
 
-### Get a Journal
+### Selecting a deck
 
-This guide is optimized for printing in whole or part based on your needs and desires, using only black-and-white ink, narrow margins, and meaningful page breaks. With a minimalist design, you won’t find much space to take notes within the guide itself. Secondly, we have laid out the structure for a very active practice involving self-reflection, somatic exercise, and real-world challenges. You’re gonna need a journal to keep up!
+This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite and originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those three names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS to cover all these cases. Whatever you choose to call it, it is the most recognizable version of the tarot. 
 
-### Join a Community
+Many modern tarot artists have adapted the ideas and storylines of the RWCS deck that you might prefer. We list some of our favorites in Resources and References and why you might enjoy them. The Wikipedia entry for the deck has an image of each card in its original design for reference. 
 
-Get new journal prompts, altar inspo, and rituals at the beginning of each astrological season. The free edition focuses on working with the Strength card. Paid subscribers receive guidance on working with their Card of the Year in conjunction with Strength. LINK
+### Reading tarot
 
-### Create an Altar Space
+You don’t need a tricked-out altar to read tarot, but you do need to center yourself. If incense and candles get you there, go for it! But never believe that your intuitive practices require them. 
 
-Get creative: a corner of your desk, a double-page spread of your journal, a spot on your nightstand, etc. We offer more specific ideas about altar items to evoke elements of Strength in the Ritual Strategies section of this guide; generally, you might expect to use candles, a container for water, incense, herbs or flowers, stones or crystals, and other small objects.
+Whether or not you use a pre-defined spread, you need a well-articulated theme or query. Good tarot questions focus on yourself, your potentialities, or otherwise ask how to direct your energy to the desired end. A useful question stays in the present or near-term future where you have power to act. Asking “will I be a famous author?” before picking up a pencil won’t accomplish anything because so much lies between you and that moment. Productive queries remain open-ended without implying that you expect to get to the ball in a pumpkin.
 
-### Do the Work
+You will inevitably pull cards with disturbing imagery and intimidating descriptions that many folks call “hard cards.” When you do, please remember two things. First, every card offers wise counsel, and sometimes that requires drawing your attention to a destructive potential. Think of cards that upset you as bitter medicine– truths you hate to swallow yet heal you nonetheless. Second, a strong reading points out the path but it doesn’t control your steps. A bothersome card or spread tells you that it’s time to find a fork in the road, not lay down in the middle of it.
 
-You don’t need to start in January. The astrological year begins in the Aries Season (Mar. 21 - Apr. 19) and the majority of our work as Touchwood Tarot kicks off then. 
-
-Do make time to practice the rituals. 
+Lastly, don’t try to use tarot to read minds– it’s not healthy, and it won’t work anyway.
 
 ## TAROT & RITUAL: Strength as Our Collective Card of the Year
 
