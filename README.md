@@ -240,11 +240,9 @@ In the Lion’s roar, we hear an undeniable message: you’ve got to feel it to 
 * Candle and burn bowl*
 * Other ritual elements such as incense, stone allies, etc.
 
-You may wish to do the initial round of journaling on The Chariot year before the main ritual because honestly, it’s a lot to do in one sitting. Read the entire practice and decide for yourself.
+You may benefit from doing the journal exercise to close The Chariot year in the previous section before this ritual because we do a releasing practice during the visualization. Read the entire practice and decide for yourself.
 
 *Any fire-safe container not used for food prep can become a burn bowl to use for the releasing practice. Fireplaces, compost bins, or even toilets work as substitutes. Insert the element that corresponds to your method, like “earth” for composting or “water” for flushing, wherever we invoke fire. Think carefully before adding paper to waterways, though.
-
-
 
 ### OPEN A RITUAL SPACE
 
@@ -337,7 +335,7 @@ The stars do not map out our lives; they only show us the edges of our comfort z
 
 ### THE SUN & LEO
 
-As the eighth card in the Major Arcana, the Strength card aligns with the 8th House and is ruled by Leo and the Sun. (The RWCS creators moved this card from its old position as the eleventh card for this reason.) Creativity, fruitful labor, and charisma get a boost from the collective power of these elements. The Sun urges us to express ourselves candidly, sharing our brilliance with others confidently. Leo takes passion to a higher level, giving us an unparalleled ability to attract others to our flames. This combo benefits artists of all mediums, certainly, but other professions may also get a beneficial bump of success and recognition. The generosity shown in this period has an exceptional power to do good to the receiver and the giver whether in material resources or acts of service, second chances, or forgiveness.
+As the eighth card in the Major Arcana, the Strength card aligns with the Eighth House and is ruled by Leo and the Sun. (The RWCS creators moved this card from its old position as the eleventh card for this reason.) Creativity, fruitful labor, and charisma get a boost from the collective power of these elements. The Sun urges us to express ourselves candidly, sharing our brilliance with others confidently. Leo takes passion to a higher level, giving us an unparalleled ability to attract others to our flames. This combo benefits artists of all mediums, certainly, but other professions may also get a beneficial bump of success and recognition. The generosity shown in this period has an exceptional power to do good to the receiver and the giver whether in material resources or acts of service, second chances, or forgiveness.
 
 This pairing rewards boldness but cautions against overreaching: egomania, greed, workaholism, and jealousy must be curbed. All matters of the 8th House merit consideration during this period, and they do get tricksy! This house relates to transformations, gray areas, and energetic exchanges, which makes this year a fantastic time to shake up any patterns you’re tired of reliving.
 
@@ -349,20 +347,17 @@ Three of the twelve astrological signs have the element of Fire, each in one of 
 
 ### STRENGTH IN YOUR NATAL SKY
 
-Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You’ll need your natal chart, which many online sources will calculate for free (see *Resources and References*). Once you have it, note the signs and planets for 1)your 8th House, 2) the house ruled by Leo, and 3) the house hosting your Sun.
+Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You’ll need your natal chart, which many online sources will calculate for free (see *Resources and References*). Once you have it, note the signs and planets for 1)your Eighth House, 2) the house ruled by Leo, and 3) the house hosting your Sun.
 
 Each of these houses relates to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible placement in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. When you get a sense of the house meanings, take inventory of those aspects of your life both externally (as they manifest to others) or internally (as beliefs, shadows, or self-talk patterns).
 
-For instance, someone with Venus in Leo in the 8th House should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. Maybe they see very literal changes to make such as starting to date again or making some requests in the bedroom. More abstractly, they could choose to begin healing attachment issues or increasing self-love. A secondary area might be aesthetics generally. Strength invites Venus-in-Leo to revamp their image (wardrobe, social media presence), refresh their home decor, or simply spend more time appreciating the arts this year.
+For instance, someone with Venus in Leo in the Eighth House (Transformations) should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. Maybe they see very literal changes to make such as starting to date again or making some requests in the bedroom. More abstractly, they could choose to begin healing attachment issues or increasing self-love. A secondary area might be aesthetics generally. Strength invites Venus-in-Leo to revamp their image (wardrobe, social media presence), refresh their home decor, or simply spend more time appreciating the arts this year.
 
 Work through the relevant aspects of your natal chart using our Venus-in-Leo example to inspire you. Each astrological element provides another window into yourself. You may or may not like what you see, and that will tell you where to focus your intentions in the coming year.
 
 ## TAROT: THE TWELVE HOUSES SPREAD
 
 Zodiac spreads take us on a journey from our innermost selves in the First House, through the houses governing our relationships and careers, until arriving in the mysterious Twelfth House. Each house corresponds to a sign, therefore this spread takes us through a complete year starting with Aries in March. Use the Twelve Houses to get a sense of how you stand and decide where to go deeper in the coming year.
-
-![TAROT_ The Twelve Houses Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/7d0c22f5-a844-40d7-9712-20933249f18d)
-
 
 ### BEFORE YOU BEGIN
 
@@ -380,79 +375,55 @@ If your practice contains a ritual opener such as casting a circle or calling in
 
 When you feel ready, shuffle and cut the cards. Place all twelve cards face down, starting at the First House and moving counter-clockwise to pull a card for each successive house. Placing all cards face-up will overwhelm your reading, believe! Lay out the complete map and then take the journey one step at a time.
 
-Before you reveal each card, read the prompts to marinate in the house’s juices. Then turn the card over and make your interpretation before moving to the next house. We recommend brief journaling both before and after you flip each card.
+Before you reveal each card, read the prompts and marinate in the house’s juices. Then turn the card over to make your interpretation before moving to the next house. We recommend brief journaling both before and after you flip each card.
 
 #### CARD 1 - FIRST HOUSE OF IDENTITIES ASCENDANT
 
 What area of personal growth would most benefit from attention now? Where do I need to cultivate more self-confidence, or express myself with greater authenticity? How do I need to change, perhaps dramatically?
 
-CARDINAL FIRE + MARS + ARIES // THE EMPEROR + THE TOWER
-
 #### CARD 2 - SECOND HOUSE OF PRACTICALITIES
 
 How am I supported, and where do I lack support? What aspect of my life deserves more pleasure and ease? Where does stubbornness or stale belief hold me back from achievement and growth? Am I too attached?
-
-FIXED EARTH + VENUS + TAURUS // THE EMPRESS + THE HIEROPHANT
 
 #### CARD 3 - THIRD HOUSE OF COMMUNION
 
 Do my friendships and community serve my highest self? Do I serve theirs? How do my communication patterns impact my relationships? Where do I step up, or maybe step back, in collaborations? Am I in love?
 
-MUTABLE AIR + MERCURY + GEMINI // THE MAGICIAN + THE LOVERS
-
 #### CARD 4 - FOURTH HOUSE OF BELONGING IMUM COELI (IC)
 
 An emotional vibe check. How am I doing, in the most holistic sense imaginable? Is my “home” stable, meaning both practically secure (finances, agreements) and well-regulated (low drama, cheery)?
-
-CARDINAL WATER + THE MOON + CANCER // THE HIGH PRIESTESS + THE CHARIOT + THE MOON
 
 #### CARD 5 - FIFTH HOUSE OF CREATIVITIES
 
 Where and when do my unique gifts shine? How confident do I feel sharing myself, authentically? Does my creativity get enough attention? Should I take the next step in a project? What am I so afraid of?
 
-FIXED FIRE + THE SUN + LEO // STRENGTH + THE SUN
-
 #### CARD 6 - SIXTH HOUSE OF EMBODIMENTS
 
 Do my habits support my physical and mental health? How healthy do I feel, regardless of what a doctor might say? What energy or practice will help me enjoy my body more fully? Where can I release perfectionism?
-
-MUTABLE EARTH / MERCURY / VIRGO // THE MAGICIAN + THE HERMIT
 
 #### CARD 7 - SEVENTH HOUSE OF PARTNERSHIPS DESCENDANT
 
 Do I form trustworthy partnerships? How well do my boundaries serve my well-being? What area of my life faces conflict, and therefore offers growth? Where can I better show up for community? Where do I have more to offer the folks in my intimate life?
 
-CARDINAL AIR + VENUS + LIBRA  // THE EMPRESS + JUSTICE
-
 #### CARD 8 - EIGHTH HOUSE OF TRANSFORMATIONS
 
 What pattern can I release? What energy do I need to call in or let flow out of me? Where has my rigidity or desire for control hurt me or others? How have I grown in the period of my life now ending? How’s my sex life?
-
-FIXED WATER + PLUTO + SCORPIO // DEATH + JUDGMENT
 
 #### CARD 9 - NINTH HOUSE OF PHILOSOPHIES
 
 Do my actions align with my ethics? How open am I (or should I be) for experiences that expand my perspective like travel, education, discomfort? Am I in a rut? Or is this a season for trust? What can I teach others?
 
-MUTABLE FIRE + JUPITER + SAGITTARIUS // THE WHEEL OF FORTUNE + TEMPERANCE
-
 #### CARD 10 - TENTH HOUSE OF LEGACIES MEDIUM COELI (MC)
 
 Have I honored my responsibilities? What area of my life merits more discipline, and which needs less compulsive fixation? Do I set and keep meaningful goals appropriately? Where should I lighten up? Or maybe buckle down?
-
-CARDINAL EARTH + SATURN + CAPRICORN // THE DEVIL + THE WORLD
 
 #### CARD 11 - ELEVENTH HOUSE OF COLLABORATORS
 
 Vast communities hold and nurture us– societies and ecologies, internal and ancestral. How well do I treat my collaborators? What’s one aspect that deserves extra appreciation? How can I improve my communal presence?
 
-FIXED AIR + URANUS + AQUARIUS // THE FOOL + THE STAR
-
 #### CARD 12 - TWELFTH HOUSE OF MYSTERIES
 
 Dreams, fantasies, wishes, regrets, inner voices, and callings. What intuitive aspect of my life has the greatest power over me now? Do I need to manifest this energy, or release it? Where can I let intuition guide me more outrageously?
-
-MUTABLE WATER + NEPTUNE + PISCES // THE HANGED ONE + THE MOON
 
 ### INTERPRETING THE SPREAD
 
@@ -491,9 +462,6 @@ Calling these houses opposing implies antagonism and contradiction;  we prefer 
 ## TAROT: THE OPEN HOUSE MINI SPREAD
 
 You might find that one of your twelve houses warrants a closer look, perhaps starting with the house that corresponds to the Strength card (8th House) or the house of your sun sign. We made this mini-spread inspired by the themes of the four quadrants to help you dig into a house a bit deeper.
-
-![TAROT_ The Twelve Houses Spread (3)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/6dc12fbc-db59-4ef0-9760-9e200a48f59a)
-
 
 1 - SELF: A dominant energy or expression of this house in your life, currently.
 2 - ORIGINS: An external factor (past or present) affecting concerns governed by this house
