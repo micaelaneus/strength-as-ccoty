@@ -38,13 +38,13 @@ Lastly, don’t try to use tarot to read minds– it’s not healthy, and it won
 
 If you’ve opened a circle with others, then you have likely encountered a version of a classic closing phrase: *the circle is open yet unbroken.* It means that although our time in a ritual space necessarily ends and we return to “normal life”, we remain connected in a larger universal circle that encompasses all beings. How we act toward and speak to one another and our moral obligations to the more-than-human world stay within this sacred open-yet-unbroken circle.
 
-We use the name Open Circle Work to describe:
+We use the name "open circle work" to describe:
 
 * all forms of political organizing
 * going to therapy or support groups
 * unionizing and whistle-blowing
 * unlearning oppressive behaviors like white supremacy
-* land remediation
+* land remediation and rematriation
 * exploring gender and sexuality
 * all the other “radical” parts of radical witchcraft, basically
 
@@ -148,7 +148,7 @@ Getting more esoteric, name any emotional or spiritual breakthroughs, mental hea
 
 Take a deep breath and remember points when exasperation, rage, or protective apathy took over. Track numbing or dissociative methods, plus the ruts and re-runs. What crushed me, and how do I feel about how I took care of myself after? How and when did I check out?
 
-Optional: copy items from these prompts that you’d like to release onto bits of paper for later, in The Lion's Remedy Ritual.
+Optional: copy items from these prompts that you’d like to release onto bits of paper for use in *The Lion's Remedy Ritual.*
 
 #### THREE CARD SPREAD: THE CHARIOT CHECK-IN
 
@@ -160,9 +160,9 @@ CARD 3 - An aspect to trust and carry forward
 
 ## TAROT: THE LEMNISCATE SPREAD
 
-What comes first, the snowflake or the sea? The question has no answer because the water cycle has no distinct beginning or end; it gradually changes form as it flows from one environment to the next. The lemniscate (aka infinity symbol) represents those parts of life that ebb and expand subtly, so try this spread when you feel an energetic shift rather than an abrubt change. We share it here to guide an inquiry into an evolving aspect of your life during the transition from The Chariot into Strength.
+What comes first, the snowflake or the sea? The question has no answer because the water cycle has no distinct beginning or end; it gradually changes form as it flows from one environment to the next. The lemniscate (aka infinity symbol) represents those parts of life that ebb and expand subtly, so try this spread when you feel an energetic shift rather than an abrupt change. We share it here to guide an inquiry into an evolving aspect of your life during the transition from The Chariot into Strength.
 
-### READING THE SPREAD
+### READING THE LEMNISCATE SPREAD
 
 If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Take a moment to settle into your body. Articulate your query mentally or in writing to strengthen and focus your intention. When you feel ready, shuffle and cut the cards. Place them one by one facing up, or place them all face down and move through the spread by turning them over. Whichever you choose, follow the curves of the lemniscate.
 
@@ -279,7 +279,9 @@ Time stops, yet many moments pass. The Lion only looks at you without making a m
 
 * Pull a card for a supportive energy or practice to help you with the previous card’s challenge.
 
-You instinctively know that the Lion’s remedy lies within its mouth, and therefore you must open the Lion’s jaws. It offers no resistance as you gently work your hands over its muzzle, and it willingly cooperates by opening wider and lolling out its tongue. You feel its hot breath on your knuckles and its saliva over your wrist as you reach down its throat. You reach so deeply into its guts that you feel one of its front teeth dig into your armpit. At that moment, your fingers brush against something the Lion obviously should not have swallowed. Somehow you find a way to reach one more inch so your hand can close around the object. Grasp it firmly and gently tug until the Lion’s gut releases it. Hold on to it as you carefully maneuver your arm out from inside the Lion.
+You instinctively know that the Lion’s remedy lies within its mouth, and therefore you must open the Lion’s jaws. It offers no resistance as you gently work your hands over its muzzle, and it willingly cooperates by opening wider and lolling out its tongue. You feel its hot breath on your knuckles and its saliva over your wrist as you reach down its throat. 
+
+You reach so deeply into its guts that you feel one of its front teeth dig into your armpit. At that moment, your fingers brush against something the Lion obviously should not have swallowed. Somehow you find a way to reach one more inch so your hand can close around the object. Grasp it firmly and gently tug until the Lion’s gut releases it. Hold on to it as you carefully maneuver your arm out from inside the Lion.
 
 Relieved of this pain and seemingly happy to let you keep the object, the Lion gives you one last sign of its affection and gratitude before happily bounding away. As it disappears into the taller grasses, you examine the recovered object and instantly recognize it as enchanted with powerful magic. You know that it will help you overcome any obstacle and silence the haters back in town.
 
@@ -363,7 +365,7 @@ This isn't a social studies test, however. Focus on the meanings that matter mos
 2. What astrological sign rules this house in your chart? Which of its themes resonate with you?
 3. Which planetary bodies occupy this house, and what do they signify?
 4. Consider how your answers to the previous prompts intersect, and how they influence one another's expression. What themes, light or shadowed, draw your attention? Trust that tickle of curiosity.
-5. How do you manifest or explore those themes into your life, as practically as possible? Challenge yourself to find three ways for each of your most fascintating house-sign-planet combinations.
+5. How do you manifest or explore those themes into your life, as practically as possible? Challenge yourself to find three ways for each of your most fascinating house-sign-planet combinations.
 
 ## TAROT: THE TWELVE HOUSES SPREAD
 
@@ -383,7 +385,7 @@ Lastly, we fully encourage you to riff on the prompts below to match any questio
 
 If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Take a moment to center yourself with a few deep breaths and settle into your body. Articulate your query mentally or in writing to strengthen and focus your intention.
 
-When you feel ready, shuffle and cut the cards. Place all twelve cards face down, starting at the First House and moving counter-clockwise to pull a card for each successive house. Placing all cards face-up will overwhelm your reading, believe! Lay out the complete map and then take the journey one step at a time.
+When you feel ready, shuffle and cut the cards. *Place all twelve cards face down*, starting at the First House and moving counter-clockwise to pull a card for each successive house up to the Twelfth. Placing all cards face-up at once will overwhelm your reading, believe! Lay out the complete map and then take the journey one step at a time.
 
 Before you reveal each card, read the prompts and marinate in the house’s juices. Then turn the card over to make your interpretation before moving to the next house. We recommend brief journaling both before and after you flip each card.
 
@@ -471,7 +473,7 @@ Calling these houses opposing implies antagonism and contradiction;  we prefer 
 
 ## TAROT: THE OPEN HOUSE MINI SPREAD
 
-You might find that one of your twelve houses warrants a closer look, perhaps starting with the house that corresponds to the Strength card (8th House) or the house of your sun sign. We made this mini-spread inspired by the themes of the four quadrants to help you dig into a house a bit deeper.
+After completing the zodiac spread, you might find that one of your twelve houses warrants a closer look starting with the houses that corresponds to the Strength card in your natal chart. We made this mini-spread inspired by the themes of the four quadrants to help you dig into a house a bit deeper.
 
 CARD 1 - SELF: A dominant energy or expression of this house in your life, currently.
 
@@ -521,12 +523,9 @@ Finish by selecting one or more short mottos for the year ahead as described abo
 
 ## TAROT: THE MUTUAL AID SPREAD
 
-As you get to know them, the archetypes of the Major Arcana start to feel like a group of long-time friends. Some get on like gangbusters, some obviously slept together, and a few inevitably bicker. Use this spread to check on how your COTY vibes with Strength, and where you might need to mediate. One more thing: we show the cards in an X-shape to signify the energies are intersecting, not “crossing” as in the common +-shaped overlap.
+As you get to know them, the archetypes of the Major Arcana start to feel like a group of long-time friends. Some get on like gangbusters, some obviously slept together, and a few inevitably bicker. Use this spread to check on how your COTY vibes with Strength, and where you might need to mediate. One more thing: we show the cards in an x-shape to signify the energies are intersecting, not “crossing” as in the common +-shaped overlap.
 
-![TAROT_ The Mutual Aid Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/5322018c-a421-4090-9bbf-30b7afd18093)
-
-
-### READING THE SPREAD
+### READING THE MUTUAL AID SPREAD
 
 Ground yourself by taking deep breaths, opening a ritual space, or centering with another method in your practice.
 
@@ -556,7 +555,9 @@ Writer Sophie Strand created this simple but powerful ritual and shared it publi
 
 ### FORM AN AFFINITY GROUP
 
-We all see the threats waiting in the coming year, and therefore we must prepare to meet them collectively. When two-to-five people organize themselves to do political work, an affinity group is born. Affinity groups let us attend larger actions safely as well as take direct action independently, according to the shared visions of its members. Invite a few like-minded friends to get together now, before the action heats up, to discuss what kind of direct actions you might want to take together. Never pressure anyone to join or agree to an action! Commitment is key, and that requires authenticity and consent. Discuss what’s fun, what’s scary, when you’ll meet to go somewhere, and what you might feel comfortable doing once you get there.
+We all see the threats waiting in the coming year, and therefore we must prepare to meet them collectively. When two-to-five people organize themselves to do political work, an affinity group is born. Affinity groups let us attend larger actions safely as well as take direct action independently, according to the shared visions of its members. Invite a few like-minded friends to get together now, before the action heats up, to discuss what kind of direct actions you might want to take together. 
+
+Never pressure anyone to join or agree to an action! Commitment is key, and that requires authenticity and consent. Discuss what’s fun, what’s scary, when you’ll meet to go somewhere, and what you might feel comfortable doing once you get there.
 
 Talk about how you’ll check in with one another during an action, and how you’ll decide to leave. Talk about disability, arrest-ability, meds, childcare, etc. Find out which causes matter most to folks and how they expect to see them attacked, then get ice cream and go roller-skating. We are forming affinity groups for collective power, not doom squads. *Militant joy FTW!*
 
@@ -618,7 +619,7 @@ Many, maaaaaaany versions of the RWCS deck exist these days, and some of the fav
 
 For those seeking a deck without humans, we suggest *The Wild Unknown Tarot* although be forewarned, it’s harder to learn tarot without the archetypes. Find this deck at <https://www.thewildunknown.com/>
 
-Images of the original illustration on Wikipedia at <https://en.wikipedia.org/wiki/Rider-Waite_Tarot>
+Images of the original illustrations by the legendary Pamela Coleman Smith can be found on Wikipedia at <https://en.wikipedia.org/wiki/Rider-Waite_Tarot>
 
 #### ETHICAL SOURCES FOR RITUAL ELEMENTS
 
