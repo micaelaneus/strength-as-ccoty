@@ -131,7 +131,7 @@ Lastly, this sunny archetype moonlights as a curse-breaker. Destructive interper
 
 ## JOURNAL: SAY GOODBYE TO THE CHARIOT
 
-The Chariot feels not romantic, not cute, but irresistibly sexy. The Figure radiates confidence and determination, linking their formidable charisma and expertise with the power of two “horses” representing our instincts and passions. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness.
+Last year fell under the archetype of The Chariot (7), which calls up themes related to diligence, mastery, and action. The Driver shown on this card feels not romantic, not cute, but irresistibly sexy. The Figure radiates confidence and determination, linking their formidable charisma and expertise with the power of two “horses” representing our instincts and passions. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness.
 
 We linked symbols of The Chariot with journal prompts about how this card’s themes showed up in your life in 2023. For each, you’ll first list out what happened last year in that area of your life and then you’ll write about whatever comes up. Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience, so give this part of the ritual the attention it deserves.
 
