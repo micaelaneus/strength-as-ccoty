@@ -4,7 +4,7 @@
 
 ## HOW TO USE THIS GUIDE
 
-Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find X spreads that combine mythopoetic tarot with astrology. We’ve given you several themes you might want to explore in your ritual and spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. We share some ideas on how to extend this collective work by incorporating your individual Card of the Year (COTY) and working in the open circle (more on that below).
+Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find five spreads based in mythopoetic tarot, some combined with astrology. We’ve given you several themes you might want to explore in spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. In the final sections, you’ll find some ideas on how to extend this collective work by incorporating your individual Card of the Year (COTY) and working in the open circle (more on that below).
 
 You need only two essential tools to use this guide: a journal and a tarot deck.
 
@@ -56,7 +56,7 @@ The Eighth Key directs our energy toward balancing the raw power of our will wit
 
 ![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/01d83302-c309-490e-8ebe-efa1d506cc51)
 
-In an open field, we see a Figure holding the mouth of a Lion with a full mane and open mouth. The Lion has claws yet looks subdued and its tail tucks between its legs. The Figure wears a simple white robe like those worn by initiates or romanticized peasants. Garlands of blooming flowers that might be roses wrap around their waist, and they wear a crown of meadow grasses or spring wheat. The only jewelry or ornament we see is the lemniscate that floats above the Figure’s head. In the distance, a forest lies at the base of a mountain range. The sky is cloudless.
+In an open field, we see a Figure holding the mouth of a Lion with a full mane and lolling tongue. The Lion has claws yet looks subdued and its tail tucks between its legs. The Figure wears a simple white robe like those worn by initiates or romanticized peasants. Garlands of blooming flowers that might be roses wrap around their waist, and they wear a crown of meadow grasses or spring wheat. The only jewelry or ornament we see is the lemniscate that floats above the Figure’s head. In the distance, a forest lies at the base of a mountain range. The sky is cloudless.
 
 Roman numerals for eight appear at the top-center and a box separates the card’s title, “Strength,” from the imagery. The artist, Pamela Coleman Smith, put her stylized initials at the bottom-right of her illustration.
 
@@ -98,7 +98,9 @@ Finally, notice that the Figure approaches the Lion fearlessly. Their relationsh
 
 #### SHADOW ASPECTS
 
-Or does the Figure grip the Lion’s jaws as a show of superiority and domination? In the real world, people “train” large cats by controlling access to food, mixing affection with intimidation, and inflicting pain. Violence and head games induce a condition of “learned helplessness” that entrenches the abuse into the cats’ psyches. Honestly, we cheer a little when we hear about one of these cats mauling their captor-trainers.
+Or does the Figure grip the Lion’s jaws as a show of superiority and domination?
+
+In the real world, people “train” large cats by controlling access to food, mixing affection with intimidation, and inflicting pain. Violence and head games induce a condition of “learned helplessness” that entrenches the abuse into the cats’ psyches. Honestly, we cheer a little when we hear about one of these cats mauling their captor-trainers.
 
 In Strength’s shadow, we see a dangerous fixation on control. Asserting dominance might feel amazing at the moment, but results in a lack of empathy that ultimately limits growth for all parties involved. We can use this card to examine how this pattern might show up in our relationships.
 
@@ -150,7 +152,7 @@ Take a deep breath and remember points when exasperation, rage, or protective ap
 
 Optional: copy items from these prompts that you’d like to release onto bits of paper for use in *The Lion's Remedy Ritual.*
 
-#### THREE CARD SPREAD: THE CHARIOT CHECK-IN
+#### TAROT: THE CHARIOT CHECK-IN
 
 Repeat this three-card spread for any theme or event from your reflection on The Chariot that still feels sticky or unsettled.
 
@@ -309,7 +311,7 @@ Now that you’ve cleaned out your bag, you find the enchanted Lion's Remedy fit
 
 Review the cards you pulled along your journey.
 
-1. What story do they tell? Journal about your takeaways.
+1. What story do they tell? Write down your key takeaways.
 2. Tell us more about what you called in when you reached the meadow.
 3. Consider what meanings and associations the Lion’s Remedy token evokes in your imagination. Why did you find this object, as opposed to some other?
 4. How did you feel after cleaning out your purse?
@@ -321,7 +323,9 @@ Taking all these ideas into consideration, set an intention for the next few mon
 
 #### CLOSE THE RITUAL SPACE
 
-When you feel complete, close your circle according to your practice or simply say something like: *“May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all.  So concludes my ritual.”*
+When you feel complete, close your circle according to your practice or simply say something like:
+
+*“May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all.  So concludes my ritual.”*
 
 ### THE LION’S REMEDY IN THE OPEN CIRCLE
 
