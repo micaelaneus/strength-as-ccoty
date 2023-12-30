@@ -46,7 +46,7 @@ We use the name Open Circle Work to describe:
 * unlearning oppressive behaviors like white supremacy
 * land remediation
 * exploring gender and sexuality
-* all the other ]“radical” part of radical witchcraft, basically
+* all the other “radical” part of radical witchcraft, basically
 
 It’s a fun list! We consider the open circle a non-negotiable aspect of our magic and you’ll see that phrase throughout this guide.
 
