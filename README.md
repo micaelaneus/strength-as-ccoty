@@ -160,9 +160,7 @@ CARD 3 - An aspect to trust and carry forward
 
 ## TAROT: THE LEMNISCATE SPREAD
 
-What comes first, the snowflake or the sea? The question has no answer because the water cycle has no distinct beginning or end; it gradually changes form as it flows from one environment to the next. The lemniscate (aka infinity symbol) represents those parts of life that ebb and expand subtly, and we use it here to guide an inquiry into an evolving aspect of your life. Try this spread in a period of slow transition or when you feel an energetic shift as opposed to an abrupt change.
-
-![TAROT_ The Lemniscate Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/7f206bf2-3930-4a0b-ab9a-5876d42f35d1)
+What comes first, the snowflake or the sea? The question has no answer because the water cycle has no distinct beginning or end; it gradually changes form as it flows from one environment to the next. The lemniscate (aka infinity symbol) represents those parts of life that ebb and expand subtly, so try this spread when you feel an energetic shift rather than an abrubt change. We share it here to guide an inquiry into an evolving aspect of your life during the transition from The Chariot into Strength.
 
 ### READING THE SPREAD
 
