@@ -54,8 +54,6 @@ It’s a fun list! We consider the open circle a non-negotiable aspect of our ma
 
 The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests.
 
-
-
 ![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/01d83302-c309-490e-8ebe-efa1d506cc51)
 
 In an open field, we see a Figure holding the mouth of a Lion with a full mane and open mouth. The Lion has claws yet looks subdued and its tail tucks between its legs. The Figure wears a simple white robe like those worn by initiates or romanticized peasants. Garlands of blooming flowers that might be roses wrap around their waist, and they wear a crown of meadow grasses or spring wheat. The only jewelry or ornament we see is the lemniscate that floats above the Figure’s head. In the distance, a forest lies at the base of a mountain range. The sky is cloudless.
@@ -103,7 +101,8 @@ Finally, notice that the Figure approaches the Lion fearlessly. Their relationsh
 Or does the Figure grip the Lion’s jaws as a show of superiority and domination? In the real world, people “train” large cats by controlling access to food, mixing affection with intimidation, and inflicting pain. Violence and head games induce a condition of “learned helplessness” that entrenches the abuse into the cats’ psyches. Honestly, we cheer a little when we hear about one of these cats mauling their captor-trainers.
 
 In Strength’s shadow, we see a dangerous fixation on control. Asserting dominance might feel amazing at the moment, but results in a lack of empathy that ultimately limits growth for all parties involved. We can use this card to examine how this pattern might show up in our relationships.
-First, a desire to demonstrate strength might lead to a mindset of overcoming challenges at any cost. This attitude could result in neglecting your well-being or that of others to pursue goals or get external validation. A deadly dog-eat-dog worldview might sneak into our mindset, allowing us to justify all manner of (self-) destructive actions. Next thing you know, this flowery Figure morphs into a latte-guzzling, over-scheduled girlboss who scares the crap out of poor Lion. (Look at the tail between its legs!) Consider how ideologies like scarcity thinking, hustle culture, toxic positivity, or hyper-individualism negatively influence the matter at hand.
+
+First, a desire to demonstrate strength might lead to a mindset of overcoming challenges at any cost. A deadly dog-eat-dog worldview sneaks into our mindset, allowing us to justify all manner of (self-) destructive behaviors. Next thing you know, this flowery Figure morphs into a latte-guzzling, over-scheduled girlboss who scares the crap out of poor Lion. (Look at the tail between its legs!) This attitude could result in your neglecting your well-being or that of others to pursue goals or get external validation. Consider how ideologies like scarcity thinking, hustle culture, toxic positivity, or hyper-individualism negatively influence the matter at hand.
 
 Alternatively, we might put on a facade of strength to appear composed and resilient on the outside while struggling internally. This emotional armor causes difficulty in seeking support when needed. This card tells us not only do we need help, we deserve it. Perhaps this card asks you to give or receive a form of support that makes you somehow uncomfortable.
 
@@ -122,6 +121,7 @@ In its darkest, most hateful manifestation, this card means fascism. The word fa
 Tarot practitioners commonly read the Strength card as an amplifier. Its presence emphasizes the influence of that placement and possibly the surrounding cards. When drawn as the signifier (often the first card of a spread) it suggests that the focus of the reading has profound meaning or potential power for the subject.
 
 Watch too for the appearance of Wands, particularly the Queen of Wands. A fiery spread might indicate an extra charge (i.e., higher intensity or greater urgency) to the focus of the reading, especially when it pertains to creativity in some form.
+
 Previous incarnations of the Tarot called this card “Force.” That word carries much more concentrated energy to us, implying a strong and tightly directed use of willpower. See if that interpretation works better for the placement.
 
 Lastly, this sunny archetype moonlights as a curse-breaker. Destructive interpersonal dynamics, ruts that feel impossible to escape, and compulsive behaviors of all sorts can be changed when Strength appears in a relevant placement.
@@ -150,9 +150,13 @@ Take a deep breath and remember points when exasperation, rage, or protective ap
 
 Optional: copy items from these prompts that you’d like to release onto bits of paper for later, in The Lion's Remedy Ritual.
 
-CARD 1 - What can you celebrate or accept about 2023?
-CARD 2 - What to release?
-CARD 3 - What lesson will you carry forward?
+#### THREE CARD SPREAD: THE CHARIOT CHECK-IN
+
+Repeat this three-card spread for any theme or event from your reflection on The Chariot that still feels sticky or unsettled.
+
+CARD 1 - An aspect to accept (though not necessarily celebrate)
+CARD 2 - An aspect to release
+CARD 3 - An aspect to trust and carry forward
 
 ## TAROT: THE LEMNISCATE SPREAD
 
