@@ -130,7 +130,7 @@ Lastly, this sunny archetype moonlights as a curse-breaker. Destructive interper
 
 Last year fell under the archetype of The Chariot (7), which calls up themes related to diligence, mastery, and action. The Driver shown on this card feels not romantic, not cute, but irresistibly sexy. The Figure radiates confidence and determination, linking their formidable charisma and expertise with the power of two “horses” representing our instincts and passions. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness.
 
-We linked symbols of The Chariot with journal prompts about how this card’s themes showed up in your life in 2023. For each, you’ll first list out what happened last year in that area of your life and then you’ll write about whatever comes up. Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience, so give this part of the ritual the attention it deserves.
+We linked symbols of The Chariot with journal prompts about how this card’s themes showed up in your life in 2023. For each, you’ll first list out what happened last year in that area of your life and then you’ll write about whatever comes up. Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience, so give yourself a moment to grow wise.
 
 ### THE DRIVER
 
@@ -263,7 +263,7 @@ You find yourself standing in the center of town having One of Those Days. Traff
 
 * Write down what those jerks say about you: every self-criticism, negative thought, stressor, point of tension, etc. on scraps of paper.
 
-You’ve heard enough and feel quite sick of them, this place, and the entire day. Gather your things into a bag and walk out of the town with a determination to salvage your afternoon. Walk until you find yourself in a thick forest, so thick you’re pushing tree branches out of your way. They may snap back to whip your face, and you might stumble over fallen branches. Yet you hear birdsong and breathe fresh air. The forest absorbs and muffles all other sounds, and you no longer hear the town even when straining your ears. You instinctively sigh with relief. The ground gets rockier and the air colder— you’re headed up the side of a mountain.
+You’ve heard enough and feel quite sick of them, this place, and the entire day. Gather your things into a bag and walk out of the town with a determination to salvage your afternoon. Walk until you find yourself in a thick forest, so thick you’re pushing tree branches out of your way. They may snap back to whip your face, and you might stumble over fallen branches. Yet you hear birdsong and breathe fresh air. The forest absorbs and muffles all other sounds, and you no longer hear the town even when straining your ears. Go ahead and sigh with relief. The ground gets rockier and the air colder— you’re headed up the side of a mountain.
 
 * Pull a card to represent a challenge faced or lesson learned in the past year.
 
@@ -281,7 +281,7 @@ Time stops, yet many moments pass. The Lion only looks at you without making a m
 
 You instinctively know that the Lion’s remedy lies within its mouth, and therefore you must open the Lion’s jaws. It offers no resistance as you gently work your hands over its muzzle, and it willingly cooperates by opening wider and lolling out its tongue. You feel its hot breath on your knuckles and its saliva over your wrist as you reach down its throat. You reach so deeply into its guts that you feel one of its front teeth dig into your armpit. At that moment, your fingers brush against something the Lion obviously should not have swallowed. Somehow you find a way to reach one more inch so your hand can close around the object. Grasp it firmly and gently tug until the Lion’s gut releases it. Hold on to it as you carefully maneuver your arm out from inside the Lion.
 
-Relieved of this pain and seemingly happy to let you keep the object, the Lion gives you one last sign of its affection and gratitude before happily bounding away. As it disappears into the taller grasses, you examine the recovered object and instantly recognize it as enchanted with powerful magic. You know that it will help you overcome any obstacle and silence those nasty townspeople.
+Relieved of this pain and seemingly happy to let you keep the object, the Lion gives you one last sign of its affection and gratitude before happily bounding away. As it disappears into the taller grasses, you examine the recovered object and instantly recognize it as enchanted with powerful magic. You know that it will help you overcome any obstacle and silence the haters back in town.
 
 * You found the Lion’s Remedy. What does this object look like, and what powers does it give you?  
 
@@ -303,19 +303,19 @@ Now that you’ve cleaned out your bag, you find the enchanted Lion's Remedy fit
 
 * Pull a card for insight, aspiration, or potential benefit gained by this work.
 
-#### JOURNAL
+#### JOURNAL: YOUR JOURNEY
 
-Do some final journaling before closing.
+Review the cards you pulled along your journey.
 
-1. Review the cards you pulled along your journey. What story do they tell? Journal about your takeaways.
+1. What story do they tell? Journal about your takeaways.
 2. Tell us more about what you called in when you reached the meadow.
 3. Consider what meanings and associations the Lion’s Remedy token evokes in your imagination. Why did you find this object, as opposed to some other?
 4. How did you feel after cleaning out your purse?
 
 Taking all these ideas into consideration, set an intention for the next few months. Write it down in a clear sentence that spells out (sorry) what you desire and what action/s you will perform to manifest it. Remember that intentions capture processes and actions that we control; goals focus on outcomes, which we may not control. Be sure to set an intention.
 
-* *“I’m going to get a job.”* Just okay.
-* *“I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.”* Very yes!
+* *“I’m going to get a job.”* Sure.
+* *“I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.”* Now we believe you!
 
 #### CLOSE THE RITUAL SPACE
 
@@ -347,13 +347,23 @@ Three of the twelve astrological signs have the element of Fire, each in one of 
 
 ### STRENGTH IN YOUR NATAL SKY
 
-Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You’ll need your natal chart, which many online sources will calculate for free (see *Resources and References*). Once you have it, note the signs and planets for 1)your Eighth House, 2) the house ruled by Leo, and 3) the house hosting your Sun.
+Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You’ll need your natal chart, which many online sources will calculate for free (see *Resources and References*). Once you have it, note the signs and planets for 1) your Eighth House, 2) the house ruled by Leo, and 3) the house hosting your Sun.
 
-Each of these houses relates to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible placement in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. When you get a sense of the house meanings, take inventory of those aspects of your life both externally (as they manifest to others) or internally (as beliefs, shadows, or self-talk patterns).
+Each of these houses relates to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible placement in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. When you get a sense of the house meanings, take inventory of those aspects of your life both externally (as they manifest to others) or internally (as beliefs, shadows, or self-talk patterns). Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another, intuitively.
 
-For instance, someone with Venus in Leo in the Eighth House (Transformations) should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. Maybe they see very literal changes to make such as starting to date again or making some requests in the bedroom. More abstractly, they could choose to begin healing attachment issues or increasing self-love. A secondary area might be aesthetics generally. Strength invites Venus-in-Leo to revamp their image (wardrobe, social media presence), refresh their home decor, or simply spend more time appreciating the arts this year.
+Example: someone with Venus in Leo in the Eighth House (Transformations) should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. They might see very literal changes to make such as starting to date again or making some requests in the bedroom. More abstractly, they could choose to begin healing attachment issues or increasing self-love. A secondary area might be aesthetics generally. Strength invites Venus-in-Leo to revamp their image (wardrobe, social media presence), refresh their home decor, or simply spend more time appreciating the arts this year. To put the power of this placement into action, they decide to clean out their closet and meet all their dates at art galleries or live performances rather than get coffee.
 
-Work through the relevant aspects of your natal chart using our Venus-in-Leo example to inspire you. Each astrological element provides another window into yourself. You may or may not like what you see, and that will tell you where to focus your intentions in the coming year.
+### JOURNAL: YOUR STRONGEST HOUSES
+
+Work through the relevant aspects of your natal chart using our Venus-in-Leo example above to inspire you. Each astrological element provides another window into yourself. You may or may not like what you see, and that will tell you where to focus your intentions in the coming year.
+
+This isn't a social studies test, however. Focus on the meanings that matter most to you, at this moment in your life, as opposed to on getting the exact astrological definitions "correct" (whatever that is).
+
+1. Look up the common associations for this house and write its themes in your own words.
+2. What astrological sign rules this house in your chart? Which of its themes resonate with you?
+3. Which planetary bodies occupy this house, and what do they signify?
+4. Consider how your answers to the previous prompts intersect, and how they influence one another's expression. What themes, light or shadowed, draw your attention? Trust that tickle of curiosity.
+5. How do you manifest or explore those themes into your life, as practically as possible? Challenge yourself to find three ways for each of your most fascintating house-sign-planet combinations.
 
 ## TAROT: THE TWELVE HOUSES SPREAD
 
@@ -463,10 +473,13 @@ Calling these houses opposing implies antagonism and contradiction;  we prefer 
 
 You might find that one of your twelve houses warrants a closer look, perhaps starting with the house that corresponds to the Strength card (8th House) or the house of your sun sign. We made this mini-spread inspired by the themes of the four quadrants to help you dig into a house a bit deeper.
 
-1 - SELF: A dominant energy or expression of this house in your life, currently.
-2 - ORIGINS: An external factor (past or present) affecting concerns governed by this house
-3 - OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
-4 - SHADOWS: An unacknowledged aspect of this house, positive or negative, that you’re ready to integrate
+CARD 1 - SELF: A dominant energy or expression of this house in your life, currently.
+
+CARD 2 - ORIGINS: An external factor (past or present) affecting concerns governed by this house
+
+CARD 3 - OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
+
+CARD 4 - SHADOWS: An unacknowledged aspect of this house, positive or negative, that you’re ready to integrate
 
 ## PART IV: YOUR CARD OF THE YEAR
 
@@ -484,7 +497,7 @@ Or don’t do any arithmetic and go with your gut. Maybe you spent last year dan
 
 One word of caution: beware of wishful thinking. You may want to go clubbing with The Lovers (6) without first getting bounced by The Hierophant (5), but that’s rarely how growth happens. Feeling a little apprehensive or disoriented might mean that this is exactly where you need to put in the work. (Psychologists call this “resistance”.) Only you can say for sure, however, so take an honest look at your motivations before choosing.
 
-### EXPLORE STRENGTH & YOUR CARD OF THE YEAR
+### JOURNAL: STRENGTH & YOUR CARD OF THE YEAR
 
 Now that you’ve chosen a Card of the Year (COTY), we can explore how it intersects with the core themes of the Strength archetype. Fish your COTY and the Strength card out of your RWCS deck and grab your journal.
 
@@ -609,11 +622,14 @@ Images of the original illustration on Wikipedia at <https://en.wikipedia.org/wi
 
 #### ETHICAL SOURCES FOR RITUAL ELEMENTS
 
-Avoid candles made from synthetic paraffin (petroleum-based) whenever possible.
+The best way to make sure your witchy supplies are ethically-sourced is to ask your supplier how and where they got them. Generally, prefer local shops and direct providers in the lineage associated with that material. For instance, buy tobacco or white sage from indigenously-owned outlets. Think about shipping, too. A package coming from across an ocean cost more carbon than one from across the state. Avoid candles made from synthetic (petroleum-based) paraffin whenever possible.
 
 * Sweetgrass Trading Company (Indigenous owned/operated) at  <https://sweetgrasstradingco.com/>
 * Theyfriend Candles at <https://www.theyfriendcandles.com/>
 * Havana James makes resin card holders at good prices at <https://www.etsy.com/shop/SparkleDivine>
+* Xalish Medicines at <https://www.etsy.com/shop/XalishMedicines>
+* Sensitive Earth at <https://www.etsy.com/shop/SensitiveEarth>
+* Reveries Farm Herbs at <https://www.etsy.com/shop/ReverieFarmHerbs>
 
 #### NATAL CHARTS
 
