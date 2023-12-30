@@ -54,10 +54,9 @@ It’s a fun list! We consider the open circle a non-negotiable aspect of our ma
 
 The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests.
 
+
+
 ![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/01d83302-c309-490e-8ebe-efa1d506cc51)
-
-
-### LOOKING AT THE CARD
 
 In an open field, we see a Figure holding the mouth of a Lion with a full mane and open mouth. The Lion has claws yet looks subdued and its tail tucks between its legs. The Figure wears a simple white robe like those worn by initiates or romanticized peasants. Garlands of blooming flowers that might be roses wrap around their waist, and they wear a crown of meadow grasses or spring wheat. The only jewelry or ornament we see is the lemniscate that floats above the Figure’s head. In the distance, a forest lies at the base of a mountain range. The sky is cloudless.
 
@@ -65,9 +64,7 @@ Roman numerals for eight appear at the top-center and a box separates the card�
 
 ### SYMBOLS & CORRESPONDENCES
 
-#### ASTROLOGY & ALLIES
-
-We cover the astrological correspondences in greater detail in *Astrology*. Plants, minerals, and other associations with Strength are found in *Ritual Strategies.*
+We cover the astrological correspondences in greater detail in *Astrology*. Plants, minerals, and other associations with Strength are found in *Ritual Strategies.* Let's start by looking at the symbols found on tarot card itself.
 
 #### THE LION’S JAWS
 
