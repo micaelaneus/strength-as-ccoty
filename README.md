@@ -129,76 +129,67 @@ Previous incarnations of the Tarot called this card “Force.” That word carri
 
 Lastly, this sunny archetype moonlights as a curse-breaker. Destructive interpersonal dynamics, ruts that feel impossible to escape, and compulsive behaviors of all sorts can be changed when Strength appears in a relevant placement.
 
+## JOURNAL: SAY GOODBYE TO THE CHARIOT
+
+The Chariot feels not romantic, not cute, but irresistibly sexy. The Figure radiates confidence and determination, linking their formidable charisma and expertise with the power of two “horses” representing our instincts and passions. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness.
+
+We linked symbols of The Chariot with journal prompts about how this card’s themes showed up in your life in 2023. For each, you’ll first list out what happened last year in that area of your life and then you’ll write about whatever comes up. Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience, so give this part of the ritual the attention it deserves.
+
+### THE DRIVER
+
+Recall any world events that affected you, plus adult stuff such as changes in living situations, career moves, or creative projects. Also, note any practical skills learned or developed, like renewing your CPR certification. How did you feel about your material conditions? Where did you struggle and where did you thrive? How did you adapt?
+
+### THE HORSES / SPHINXES
+
+Write down any shifts in relationships, deaths or births, health updates, physical self-care habits, and the most memorable highs and lows, emotionally.  emotional highs and lows. What allies (human or otherwise) supported you this year? Have you thanked them, or given them honest feedback?
+
+### THE STAR CROWN
+
+Getting more esoteric, name any emotional or spiritual breakthroughs, mental health therapies or psychological self-care. List communication skills learned or developed, like Nonviolent Communication or boundary setting. Did your ritual practice (witchcraft, magic) and other means of tending your inner garden serve you? How well did your actions align with your values? Do a vibe check.
+
+### THE WHEEL
+
+Take a deep breath and remember points when exasperation, rage, or protective apathy took over. Track numbing or dissociative methods, plus the ruts and re-runs. What crushed me, and how do I feel about how I took care of myself after? How and when did I check out?
+
+Optional: copy items from these prompts that you’d like to release onto bits of paper for later, in The Lion's Remedy Ritual.
+
+CARD 1 - What can you celebrate or accept about 2023?
+CARD 2 - What to release?
+CARD 3 - What lesson will you carry forward?
+
 ## TAROT: THE LEMNISCATE SPREAD
 
 What comes first, the snowflake or the sea? The question has no answer because the water cycle has no distinct beginning or end; it gradually changes form as it flows from one environment to the next. The lemniscate (aka infinity symbol) represents those parts of life that ebb and expand subtly, and we use it here to guide an inquiry into an evolving aspect of your life. Try this spread in a period of slow transition or when you feel an energetic shift as opposed to an abrupt change.
 
 ![TAROT_ The Lemniscate Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/7f206bf2-3930-4a0b-ab9a-5876d42f35d1)
 
-
 ### READING THE SPREAD
 
 If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Take a moment to settle into your body. Articulate your query mentally or in writing to strengthen and focus your intention. When you feel ready, shuffle and cut the cards. Place them one by one facing up, or place them all face down and move through the spread by turning them over. Whichever you choose, follow the curves of the lemniscate.
 
-1 - YOU AT THE POINT OF DEPARTURE: Insight into where you stand at the end of a cycle
+CARD 1 - YOU AT THE POINT OF DEPARTURE: Insight into where you stand at the end of a cycle
 
-2 - OUTSIDE INFLUENCE: An energy, focus, or external factor with declining significance
+CARD 2 - OUTSIDE INFLUENCE: An energy, focus, or external factor with declining significance
 
-3 - SHRINKING SHADOW: Emotional preoccupation, belief, or vibe to integrate and move on from
+CARD 3 - SHRINKING SHADOW: Emotional preoccupation, belief, or vibe to integrate and move on from
 
-4 - HARVEST BOUNTY: An area or ability, perhaps a struggle, that nears completion
+CARD 4 - HARVEST BOUNTY: An area or ability, perhaps a struggle, that nears completion
 
-5 - BURNT OFFERING: Something to surrender as you cycle forward
+CARD 5 - BURNT OFFERING: Something to surrender as you cycle forward
 
-6 - OUTSIDE  INFLUENCE: An external element with increasing significance
+CARD 6 - OUTSIDE  INFLUENCE: An external element with increasing significance
 
-7 - SHIFTING SHADOW: Emerging energy or focus for self-reflection and shadow work
+CARD 7 - SHIFTING SHADOW: Emerging energy or focus for self-reflection and shadow work
 
-8 - ROOM TO GROW: Aspiration to work toward, or place to improve your awareness
+CARD 8 - ROOM TO GROW: Aspiration to work toward, or place to improve your awareness
 
-9 - FRESH SPARK: Something to accept, whether new energy or hard reality
+CARD 9 - FRESH SPARK: Something to accept, whether new energy or hard reality
 
-10 - ENCOURAGING WORD: An opportunity or bit of inspo for the coming period
+CARD 10 - ENCOURAGING WORD: An opportunity or bit of inspo for the coming period
 
-11 - WORD OF CAUTION: An aspect of the emerging phase to treat with care
+CARD 11 - WORD OF CAUTION: An aspect of the emerging phase to treat with care
 
-12 - YOU AT THE MOMENT OF ARRIVAL: Insight into where you stand at the start of a cycle
-
-## TAROT: EIGHT WAYS TO BOOST THE SIGNAL
-
-Some tarot readers believe the Strength card acts as a “signal booster” to amplify the significance of a position or its surrounding cards. Following that idea, we’re giving you eight times to pull a bonus card at the end of a spread for an extra kick of inspiration.
-
-WHEN YOU’D RATHER NOT
-
-Pull a card to reveal a source of support when facing fears triggered by a spread or one card within it.
-
-WHEN YOU WERE PROMISED THERE’D BE CAKE
-
-A “hard card” appears in a spread position that should have been fun! Pull for grace and acceptance.
-
-WHEN YOUR NAVEL STARTS TO BORE YOU
-
-Most folks use tarot for introspection, yet we know it’s not all about us. Pull a card for community.
-
-WHEN THE PROBLEM IS YOU
-
-Accountability isn’t just for villains. Pull to find out where to own responsibility or back in your lane.
-
-WHEN YOU GET IT ALREADY
-
-When you nod in agreement for the entire spread, go with it. Pull a card to double up on a key insight.
-
-WHEN IT’S A RISK YOU’RE WILLING TO TAKE
-
-Sometimes any decision beats no decision at all. Pull a card like you’re rolling dice.
-
-WHEN YOU’RE ABOUT TO WRECK YOURSELF
-
-Strength is lion-hearted, not pig-headed. Pull a card to check your ego or when you feel resistant.
-
-WHEN YOU DON’T KNOW YOUR OWN STRENGTH
-
-Each card connotes a flavor of yes-no-maybe. Adapt this to signify the right effort or urgency to use.
+CARD 12 - YOU AT THE MOMENT OF ARRIVAL: Insight into where you stand at the start of a cycle
 
 ## PART II: RITUAL STRATEGIES
 
@@ -254,27 +245,7 @@ You may wish to do the initial round of journaling on The Chariot year before th
 
 *Any fire-safe container not used for food prep can become a burn bowl to use for the releasing practice. Fireplaces, compost bins, or even toilets work as substitutes. Insert the element that corresponds to your method, like “earth” for composting or “water” for flushing, wherever we invoke fire. Think carefully before adding paper to waterways, though.
 
-### JOURNAL: REVIEW THE CHARIOT YEAR
 
-The Chariot feels not romantic, not cute, but irresistibly sexy. The Figure radiates confidence and determination, linking their formidable charisma and expertise with the power of two “horses” representing our instincts and passions. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness. We linked symbols of The Chariot with journal prompts about how this card’s themes showed up in your life in 2023. For each, you’ll first list out what happened last year in that area of your life and then you’ll write about whatever comes up. Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience, so give this part of the ritual the attention it deserves.
-
-#### THE DRIVER
-
-Recall any world events that affected you, plus adult stuff such as changes in living situations, career moves, or creative projects. Also, note any practical skills learned or developed, like renewing your CPR certification. How did you feel about your material conditions? Where did you struggle and where did you thrive? How did you adapt?
-
-#### THE HORSES / SPHINXES
-
-Write down any shifts in relationships, deaths or births, health updates, physical self-care habits, and the most memorable highs and lows, emotionally.  emotional highs and lows. What allies (human or otherwise) supported you this year? Have you thanked them, or given them honest feedback?
-
-#### THE STAR CROWN
-
-Getting more esoteric, name any emotional or spiritual breakthroughs, mental health therapies or psychological self-care. List communication skills learned or developed, like Nonviolent Communication or boundary setting. Did your ritual practice (witchcraft, magic) and other means of tending your inner garden serve you? How well did your actions align with your values? Do a vibe check.
-
-#### THE WHEEL
-
-Take a deep breath and remember points when exasperation, rage, or protective apathy took over. Track numbing or dissociative methods, plus the ruts and re-runs. What crushed me, and how do I feel about how I took care of myself after? How and when did I check out?
-
-Optional: copy items from these prompts that you’d like to release onto bits of paper for later, in The Lion's Remedy Ritual.
 
 ### OPEN A RITUAL SPACE
 
