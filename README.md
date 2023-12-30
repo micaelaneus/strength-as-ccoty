@@ -76,7 +76,7 @@ This well-known icon floating above the Figure’s head connects them to the eth
 
 #### THE WHITE ROBE & INWARD GAZE
 
-White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles.  Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure wear this simple robe rather than armor or an aristocratic like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice not afraid of their next rite of passage. Notice that the Figure gazes calmly and directly into the lion’s eyes, not outward into our own as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments.
+White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles. Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure wear this simple robe rather than armor or an aristocratic like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice not afraid of their next rite of passage. Notice that the Figure gazes calmly and directly into the lion’s eyes, not outward into our own as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments.
 
 #### FLOWERS & WREATHS
 
