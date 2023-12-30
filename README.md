@@ -135,16 +135,27 @@ What comes first, the snowflake or the sea? The question has no answer because t
 If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Take a moment to settle into your body. Articulate your query mentally or in writing to strengthen and focus your intention. When you feel ready, shuffle and cut the cards. Place them one by one facing up, or place them all face down and move through the spread by turning them over. Whichever you choose, follow the curves of the lemniscate.
 
 1 - YOU AT THE POINT OF DEPARTURE: Insight into where you stand at the end of a cycle
+
 2 - OUTSIDE INFLUENCE: An energy, focus, or external factor with declining significance
+
 3 - SHRINKING SHADOW: Emotional preoccupation, belief, or vibe to integrate and move on from
+
 4 - HARVEST BOUNTY: An area or ability, perhaps a struggle, that nears completion
+
 5 - BURNT OFFERING: Something to surrender as you cycle forward
+
 6 - OUTSIDE  INFLUENCE: An external element with increasing significance
+
 7 - SHIFTING SHADOW: Emerging energy or focus for self-reflection and shadow work
+
 8 - ROOM TO GROW: Aspiration to work toward, or place to improve your awareness
+
 9 - FRESH SPARK: Something to accept, whether new energy or hard reality
+
 10 - ENCOURAGING WORD: An opportunity or bit of inspo for the coming period
+
 11 - WORD OF CAUTION: An aspect of the emerging phase to treat with care
+
 12 - YOU AT THE MOMENT OF ARRIVAL: Insight into where you stand at the start of a cycle
 
 ## TAROT: EIGHT WAYS TO BOOST THE SIGNAL
@@ -152,27 +163,35 @@ If your practice contains a ritual opener such as casting a circle or calling in
 Some tarot readers believe the Strength card acts as a “signal booster” to amplify the significance of a position or its surrounding cards. Following that idea, we’re giving you eight times to pull a bonus card at the end of a spread for an extra kick of inspiration.
 
 WHEN YOU’D RATHER NOT
+
 Pull a card to reveal a source of support when facing fears triggered by a spread or one card within it.
 
 WHEN YOU WERE PROMISED THERE’D BE CAKE
+
 A “hard card” appears in a spread position that should have been fun! Pull for grace and acceptance.
 
 WHEN YOUR NAVEL STARTS TO BORE YOU
+
 Most folks use tarot for introspection, yet we know it’s not all about us. Pull a card for community.
 
 WHEN THE PROBLEM IS YOU
+
 Accountability isn’t just for villains. Pull to find out where to own responsibility or back in your lane.
 
 WHEN YOU GET IT ALREADY
+
 When you nod in agreement for the entire spread, go with it. Pull a card to double up on a key insight.
 
 WHEN IT’S A RISK YOU’RE WILLING TO TAKE
+
 Sometimes any decision beats no decision at all. Pull a card like you’re rolling dice.
 
 WHEN YOU’RE ABOUT TO WRECK YOURSELF
+
 Strength is lion-hearted, not pig-headed. Pull a card to check your ego or when you feel resistant.
 
 WHEN YOU DON’T KNOW YOUR OWN STRENGTH
+
 Each card connotes a flavor of yes-no-maybe. Adapt this to signify the right effort or urgency to use.
 
 ## PART II: RITUAL STRATEGIES
@@ -297,16 +316,16 @@ Wipe the Lion’s spit off your new totem. You’re bringing this home with you,
 * Gather the scraps of paper from the first step of the ritual and prepare your method for releasing them; we use a candle and burn bowl.
 * Lift a scrap in your right hand and recite a one-line banishing spell (examples below) as you carefully set it aflame. If you wish to read it or name what you’re releasing (very optional), use only the briefest description possible. Retelling the story essentially re-activates it, reinforcing those neural pathways, at the exact moment we want it to fade away.
 * One-line banishing spells in order of increasing intensity:
-* * *By fire, I return this energy [or brief description] to its source. May it flow to the place where it does the most good— it’s no longer needed here.*
-* * *By the power of fire, I surrender and release you, ending all attachments. May you go to serve life in a new form, in a new place.*
-* * *By fire, I banish you. For my highest good, I banish you. To serve life [or a specific cause], I banish you.*
-* * [Begin by naming the issue, or simply say:] *I cast you out. I no longer desire your presence in my life, your energy is unwelcome, and so you must go. By fire, I burn and banish you. Do not return.*
-* * *With this flame and by my will, I reclaim all power from you*[or brief description]. *From this moment until the end of time, I am safe from your control. This fire has cleansed my life of your influence, and I am free.* [At “power”, name anything you want to call back like dignity, financial freedom, or romantic longing.]
+  * *By fire, I return this energy [or brief description] to its source. May it flow to the place where it does the most good— it’s no longer needed here.*
+  * *By the power of fire, I surrender and release you, ending all attachments. May you go to serve life in a new form, in a new place.*
+  * *By fire, I banish you. For my highest good, I banish you. To serve life [or a specific cause], I banish you.*
+  * [Begin by naming the issue, or simply say:] *I cast you out. I no longer desire your presence in my life, your energy is unwelcome, and so you must go. By fire, I burn and banish you. Do not return.*
+  * *With this flame and by my will, I reclaim all power from you*[or brief description]. *From this moment until the end of time, I am safe from your control. This fire has cleansed my life of your influence, and I am free.* [At “power”, name anything you want to call back like dignity, financial freedom, or romantic longing.]
 * When you finish releasing every bit of old baggage, close out this portion of the ritual by speaking a version of the following phrase:
-* * *May this flame find and release any negative energy, attachment, or influence not yet named which does me harm, for my good and the good of all beings.*
+  * *May this flame find and release any negative energy, attachment, or influence not yet named which does me harm, for my good and the good of all beings.*
 * Use incense, smudging herbs, or essential oils to clear the air. Peeling citrus and adding the rinds to hot water works as well, and so does simply opening a window. If you’ve been using a dedicated banishing-protecting candle (often black), extinguish it. Leave your ritual candle burning.
 
-Now that you’ve cleaned out your bag, you find the enchanted totem fits perfectly, and carrying it is no trouble. Content with your adventure, you pause for a moment to soak in the delicious power of the meadow before heading back toward the mountain to home.
+Now that you’ve cleaned out your bag, you find the enchanted Lion's Remedy fits perfectly, and carrying it is no trouble. Content with your adventure, you pause for a moment to soak in the delicious power of the meadow before heading back toward the mountain to home.
 
 * Pull a card for insight, aspiration, or potential benefit gained by this work.
 
@@ -314,7 +333,7 @@ Now that you’ve cleaned out your bag, you find the enchanted totem fits perfec
 
 Do some final journaling before closing.
 
-1. Review the cards you pulled along your journey. What story do they tell?  Journal about your takeaways.
+1. Review the cards you pulled along your journey. What story do they tell? Journal about your takeaways.
 2. Tell us more about what you called in when you reached the meadow.
 3. Consider what meanings and associations the Lion’s Remedy token evokes in your imagination. Why did you find this object, as opposed to some other?
 4. How did you feel after cleaning out your purse?
@@ -330,11 +349,11 @@ When you feel complete, close your circle according to your practice or simply s
 
 ### THE LION’S REMEDY IN THE OPEN CIRCLE
 
-For the next eight days, read or speak your intention aloud to yourself as you perform an everyday act of self-care. Stick a piece of paper with your intention written on it between the bristles of your hairbrush and recite it as you groom yourself every morning, right into the mirror.  as you groom. Enchant your lip gloss, moisturizer, or inhaler– anything you use at least once per day and relates to self-care.
+1. For the next eight days, read or speak your intention aloud to yourself as you perform an everyday act of self-care. Stick a piece of paper with your intention written on it between the bristles of your hairbrush and recite it as you groom yourself every morning, right into the mirror.  as you groom. Enchant your lip gloss, moisturizer, or inhaler– anything you use at least once per day and relates to self-care.
 
-Keep a tangible version of your Lion’s Remedy totem near you for the next eight days, or the duration of your intention. Translate more fantastical totems that don’t fit in your pocket, like a hot air balloon and bolt cutters, into an everyday item that loosely correlates. A hot air balloon might turn into a heater, or bolt cutters into kitchen shears, for example.
+2. Keep a tangible version of your Lion’s Remedy totem near you for the next eight days, or the duration of your intention. Translate more fantastical totems that don’t fit in your pocket, like a hot air balloon and bolt cutters, into an everyday item that loosely correlates. A hot air balloon might turn into a heater, or bolt cutters into kitchen shears, for example.
 
-Want your magic to last? Solidarity is forever! Take time to support a collective effort related to the fears and obstacles you banished with the Lion’s Remedy. For instance, someone who cleansed a bad relationship might volunteer at (or donate to) a local shelter for domestic abuse survivors. Feel like your job or living situation is a prison? Help others literally escape by contributing to the National Bail-Out. Picking up litter would work for any issue— bless some work gloves with your intention and fill a bag.
+3. Want your magic to last? Solidarity is forever! Take time to support a collective effort related to the fears and obstacles you banished with the Lion’s Remedy. For instance, someone who cleansed a bad relationship might volunteer at (or donate to) a local shelter for domestic abuse survivors. Feel like your job or living situation is a prison? Help others literally escape by contributing to the National Bail-Out. Picking up litter would work for any issue— bless some work gloves with your intention and fill a bag.
 
 ## PART III: ASTROLOGY
 
