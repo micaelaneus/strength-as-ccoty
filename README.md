@@ -6,7 +6,7 @@
 
 Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find X spreads that combine mythopoetic tarot with astrology. We’ve given you several themes you might want to explore in your ritual and spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. We share some ideas on how to extend this collective work by incorporating your individual Card of the Year (COTY) and working in the open circle (more on that below).
 
-You need only two basic tools to use this guide: a journal and a tarot deck.
+You need only two essential tools to use this guide: a journal and a tarot deck.
 
 This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite, originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those three names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS deck to cover all these cases. Whatever you call it, it is the most recognizable version of the tarot.
 
@@ -14,7 +14,7 @@ Many modern tarot artists have adapted the ideas and storylines of the RWCS deck
 
 ## WORK WITH US THROUGHOUT THE YEAR
 
-We begin publishing seasonal guides for working with Strength as our collective card of the year in March, when Aries kicks off the new astrological year. Each guide offers tarot, astrology, and ritual inspiration in keeping with that season’s astrological sign. Our work belongs to the emerging discipline of radical witchcraft, though you might hear other names for the mix of paganism and anti-authoritarian politics we practice.
+We begin publishing seasonal guides for working with Strength as our collective card of the year in March when Aries kicks off the new astrological year. Each guide offers tarot, astrology, and ritual inspiration in keeping with that season’s astrological sign. Our work belongs to the emerging discipline of radical witchcraft, though you might hear other names for the mix of paganism and anti-authoritarian politics we practice.
 
 Join us by subscribing at <www.touchwoodtarot.com>
 
