@@ -4,7 +4,7 @@
 
 ## HOW TO USE THIS GUIDE
 
-Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find X spreads that combine mythopoetic tarot with astrology. We’ve given you several themes you might want to explore in your ritual and spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. We share some ideas on how to extend this collective work by incorporating your personal Card of the Year (COTY) and working in the open circle (more on that below).
+Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find X spreads that combine mythopoetic tarot with astrology. We’ve given you several themes you might want to explore in your ritual and spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. We share some ideas on how to extend this collective work by incorporating your individual Card of the Year (COTY) and working in the open circle (more on that below).
 
 You need only two basic tools to use this guide: a journal and a tarot deck.
 
@@ -46,13 +46,16 @@ We use the name Open Circle Work to describe:
 * unlearning oppressive behaviors like white supremacy
 * land remediation
 * exploring gender and sexuality
-* all the other “radical” part of radical witchcraft, basically
+* all the other “radical” parts of radical witchcraft, basically
 
 It’s a fun list! We consider the open circle a non-negotiable aspect of our magic and you’ll see that phrase throughout this guide.
 
 ## PART I: STRENGTH IN THE TAROT
 
 The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests.
+
+![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/01d83302-c309-490e-8ebe-efa1d506cc51)
+
 
 ### LOOKING AT THE CARD
 
@@ -76,7 +79,7 @@ This well-known icon floating above the Figure’s head connects them to the eth
 
 #### THE WHITE ROBE & INWARD GAZE
 
-White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles. Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure wear this simple robe rather than armor or an aristocratic like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice not afraid of their next rite of passage. Notice that the Figure gazes calmly and directly into the lion’s eyes, not outward into our own as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments.
+White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles. Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure wear this simple robe rather than armor or an aristocratic fabric like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice not afraid of their next rite of passage. Notice that the Figure gazes calmly and directly into the lion’s eyes, not outward into our own as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments.
 
 #### FLOWERS & WREATHS
 
@@ -129,6 +132,9 @@ Lastly, this sunny archetype moonlights as a curse-breaker. Destructive interper
 ## TAROT: THE LEMNISCATE SPREAD
 
 What comes first, the snowflake or the sea? The question has no answer because the water cycle has no distinct beginning or end; it gradually changes form as it flows from one environment to the next. The lemniscate (aka infinity symbol) represents those parts of life that ebb and expand subtly, and we use it here to guide an inquiry into an evolving aspect of your life. Try this spread in a period of slow transition or when you feel an energetic shift as opposed to an abrupt change.
+
+![TAROT_ The Lemniscate Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/7f206bf2-3930-4a0b-ab9a-5876d42f35d1)
+
 
 ### READING THE SPREAD
 
@@ -196,7 +202,7 @@ Each card connotes a flavor of yes-no-maybe. Adapt this to signify the right eff
 
 ## PART II: RITUAL STRATEGIES
 
-Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals, or to sanctify the nitty-gritty work of living. All reasons are good reasons. Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life.  We offer some spare thread and loose buttons, notions you might find useful as you sew the coming year together. *As ye harm none, do as ye will!*
+Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals or to sanctify the nitty-gritty work of living. All reasons are good reasons. Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life.  We offer some spare thread and loose buttons, notions you might find useful as you sew the coming year together. *As ye harm none, do as ye will!*
 
 ### MINERAL & PLANT ALLIES
 
@@ -303,7 +309,7 @@ You roam about to gaze at the meadow’s splendor, looking for dragonflies or qu
 
 Time stops, yet many moments pass. The Lion only looks at you without making a move, and slowly you realize it’s in some kind of distress. An irresistible urge to approach the Lion takes command of your feet. When you reach it, you can tell it’s in an enormous, absolutely soul-crushing amount of pain. You reach out to comfort it, feeling the warmth of its body in the sunlight as you caress it around the ears. You pick a few small burs out of its coat and feel the nubby line of an old scar under its mane. The Lion melts in the face of your compassion, rubbing its face into your hands for more love.
 
-* Pull a card for a supporting energy or practice to help you with the previous card’s challenge.
+* Pull a card for a supportive energy or practice to help you with the previous card’s challenge.
 
 You instinctively know that the Lion’s remedy lies within its mouth, and therefore you must open the Lion’s jaws. It offers no resistance as you gently work your hands over its muzzle, and it willingly cooperates by opening wider and lolling out its tongue. You feel its hot breath on your knuckles and its saliva over your wrist as you reach down its throat. You reach so deeply into its guts that you feel one of its front teeth dig into your armpit. At that moment, your fingers brush against something the Lion obviously should not have swallowed. Somehow you find a way to reach one more inch so your hand can close around the object. Grasp it firmly and gently tug until the Lion’s gut releases it. Hold on to it as you carefully maneuver your arm out from inside the Lion.
 
@@ -384,6 +390,9 @@ Work through the relevant aspects of your natal chart using our Venus-in-Leo exa
 ## TAROT: THE TWELVE HOUSES SPREAD
 
 Zodiac spreads take us on a journey from our innermost selves in the First House, through the houses governing our relationships and careers, until arriving in the mysterious Twelfth House. Each house corresponds to a sign, therefore this spread takes us through a complete year starting with Aries in March. Use the Twelve Houses to get a sense of how you stand and decide where to go deeper in the coming year.
+
+![TAROT_ The Twelve Houses Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/7d0c22f5-a844-40d7-9712-20933249f18d)
+
 
 ### BEFORE YOU BEGIN
 
@@ -513,6 +522,9 @@ Calling these houses opposing implies antagonism and contradiction;  we prefer 
 
 You might find that one of your twelve houses warrants a closer look, perhaps starting with the house that corresponds to the Strength card (8th House) or the house of your sun sign. We made this mini-spread inspired by the themes of the four quadrants to help you dig into a house a bit deeper.
 
+![TAROT_ The Twelve Houses Spread (3)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/6dc12fbc-db59-4ef0-9760-9e200a48f59a)
+
+
 1 - SELF: A dominant energy or expression of this house in your life, currently.
 2 - ORIGINS: An external factor (past or present) affecting concerns governed by this house
 3 - OTHERS: The vibe you send out to others in these matters, or the impact this house has on relationships
@@ -560,6 +572,9 @@ Finish by selecting one or more short mottos for the year ahead as described abo
 
 As you get to know them, the archetypes of the Major Arcana start to feel like a group of long-time friends. Some get on like gangbusters, some obviously slept together, and a few inevitably bicker. Use this spread to check on how your COTY vibes with Strength, and where you might need to mediate. One more thing: we show the cards in an X-shape to signify the energies are intersecting, not “crossing” as in the common +-shaped overlap.
 
+![TAROT_ The Mutual Aid Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/5322018c-a421-4090-9bbf-30b7afd18093)
+
+
 ### READING THE SPREAD
 
 Ground yourself by taking deep breaths, opening a ritual space, or centering with another method in your practice.
@@ -592,7 +607,7 @@ Writer Sophie Strand created this simple but powerful ritual and shared it publi
 
 We all see the threats waiting in the coming year, and therefore we must prepare to meet them collectively. When two-to-five people organize themselves to do political work, an affinity group is born. Affinity groups let us attend larger actions safely as well as take direct action independently, according to the shared visions of its members. Invite a few like-minded friends to get together now, before the action heats up, to discuss what kind of direct actions you might want to take together. Never pressure anyone to join or agree to an action! Commitment is key, and that requires authenticity and consent. Discuss what’s fun, what’s scary, when you’ll meet to go somewhere, and what you might feel comfortable doing once you get there.
 
-Definitely talk about how you’ll check in with one another during an action, and how you’ll decide to leave. Talk about disability, arrest-ability, meds, childcare, etc. Find out which causes matter most to folks and how they expect to see them attacked, then get ice cream and go roller-skating. We are forming affinity groups for collective power, not doom squads. *Militant joy FTW!*
+Talk about how you’ll check in with one another during an action, and how you’ll decide to leave. Talk about disability, arrest-ability, meds, childcare, etc. Find out which causes matter most to folks and how they expect to see them attacked, then get ice cream and go roller-skating. We are forming affinity groups for collective power, not doom squads. *Militant joy FTW!*
 
 ### RE-ENCHANT YOUR LIFE
 
@@ -602,7 +617,7 @@ In the past, people worked with beautiful tools built to honor and inspire those
 * Turn your morning mug into a sacred vessel. Fill it with stone and plant allies that attract the power you want to infuse into your life and leave it under a full moon.
 * Enchant your commute by attaching mantras or intentions to places you pass, or divining your personal omens. Crossing that bridge or overpass brings you into a new realm, and a hawk on that telephone poll means you should make love as soon as possible.
 * Sanctify one of the super fat Sharpies and a bag of random stickers as magic wands and sigils, then keep them handy so you can cover up fascist graffiti in public restrooms.
-* Get some cuter pajamas and tell everyone you about your new spacesuit.
+* Get some cuter pajamas and tell everyone about your new spacesuit.
 
 ### CHECKLIST FOR STRENGTH YEAR
 
@@ -614,7 +629,7 @@ This guide gave several ways to work with Strength to extend your tarot and ritu
 * Find your astrological houses associated with Strength
 * Create a motto for 2024 (see The Lion’s Remedy Ritual)
 * Enlist some mineral and plant allies (ethical sources only)
-* Choose your personal Card of the Year
+* Choose your Card of the Year
 * Pick a practice for embracing embodiment
 * Exorcise one of Strength’s demons (ableism, gender essentialism, etc.)
 * Form an affinity group for collective action
@@ -641,7 +656,7 @@ We have too many tarot and astrological references to name! We’ll share them i
 
 ### OTHER TAROT DECKS IN THE RWCS LINEAGE
 
-Many, maaaaaaany versions of the RWCS deck exist these days, and some of the favorites sold out years ago and will never be re-printed (looking at you, *Collective Tarot*). These ones are equally awesome and readily available:
+Many, maaaaaaany versions of the RWCS deck exist these days, and some of the favorites sold out years ago and will never be re-printed (looking at you, *Collective Tarot*). These are equally awesome and readily available:
 
 * *The Melanated Tarot* (Black) at <https://www.oubria.com/melanated-classic-tarot.html>
 * *The Black Queer Tarot* (the name says it all) at <https://blackqueertarot.com/>
