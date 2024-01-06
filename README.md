@@ -8,7 +8,7 @@ Contents
 * Working in the Open Circle
   
 PART I: Strength in the Tarot
-* Symbols of the Archetype
+* [Symbols of the Archetype](symbols-of-the-archetype.md)
 * Interpretation
   * Shadow Aspects
   * In Readings
