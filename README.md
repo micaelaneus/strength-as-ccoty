@@ -11,8 +11,8 @@ How to Use This Guide
 PART I: Strength in the Tarot
 * Symbols of the Archetype
 * Interpretation
- * Shadow Aspects
- * In Readings
+  * Shadow Aspects
+  * In Readings
 * JOURNAL: The Chariot Rides On
 * TAROT: The Lemniscate Spread
   
