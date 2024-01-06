@@ -39,10 +39,15 @@ Contents
 * Gather Council
 * Form an Affinity Group
 * Re-enchant Your Life
-* CHECKLIST: Gearing Up for Your Strength Year
-* Closing
+* [CHECKLIST: Gearing Up for Your Strength Year](gearing-up-for-your-strength-year.md)
+* [Closing](closing.md)
   
-Resources & References
+[Resources & References](resources-and-references.md)
+* Tarot & Astrology References
+* Other Tarot Decks in the RWCS Lineage
+* Ethical Sources for Ritual Elements
+* Natal Charts
+* Open Circle Work
 
 ## Legal Notices
 
