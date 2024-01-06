@@ -1,4 +1,4 @@
-# PART II: RITuaL STRATEGIeS
+# PART II: Ritual Strategies
 
 Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals or to sanctify the nitty-gritty work of living. All reasons are good reasons. Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
 
