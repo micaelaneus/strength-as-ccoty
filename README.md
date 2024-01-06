@@ -3,6 +3,7 @@
 The Radical Witch's Guide to Our Collective Card of the Year in 2024
 
 Contents:
+
 How to Use This Guide
 * Work With Us Throughout the Year
 * A Brief Introduction to Reading Tarot
