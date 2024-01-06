@@ -26,12 +26,12 @@ Contents
 * The Sun & Leo
 * Fire & The Suit of Wands
 * Strength in Your Natal Sky
-* JOURNAL: Ever Stronger Strengths
+* [JOURNAL: Ever Stronger Strengths](ever-stronger-strengths.md)
 * TAROT: The Twelve Houses Spread
   
 PART IV: Strength & Your Card of the Year
 * Select an Archetype for 2024
-* [JOURNAL: Strength & Your Card of the Year](ever-stronger-strengths.md)
+* [JOURNAL: Strength & Your Card of the Year]
 * TAROT: The Mutual Aid Spread
   
 PART V: Open Circle Work
