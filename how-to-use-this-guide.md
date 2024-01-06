@@ -12,7 +12,8 @@ It's not necessary to understand every aspect of your natal chart or much about 
 
 ## WORK WITH US THROUGHOUT THE YEAR
 
-We begin publishing seasonal guides for working with Strength as our collective card of the year in March when Aries kicks off the new astrological year. Each guide offers tarot, astrology, and ritual inspiration in keeping with that season’s astrological sign. Our work belongs to the emerging discipline of radical witchcraft, though you might hear other names for the mix of paganism and anti-authoritarian politics we practice. 
+We begin publishing seasonal guides for working with Strength as our collective card of the year in March when Aries kicks off the new astrological year. Each guide offers tarot, astrology, and ritual inspiration in keeping with that season’s astrological sign. Our work belongs to the emerging discipline of radical witchcraft, though you might hear other names for the mix of paganism and anti-authoritarian politics we practice.
+
 Join us by subscribing to the newsletter at www.touchwoodtarot.com
 
 ## A BRIEF INTRODUCTION TO READING TAROT
