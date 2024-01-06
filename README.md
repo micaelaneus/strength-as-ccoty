@@ -9,7 +9,7 @@ Contents
   
 PART I: Strength in the Tarot
 * [Symbols of the Archetype](symbols-of-the-archetype.md)
-* Interpretation
+* [Interpretation](interpretation.md)
   * Shadow Aspects
   * In Readings
 * JOURNAL: The Chariot Rides On
