@@ -1,8 +1,6 @@
-# Strength
+# Strength: The Radical Witch's Guide to Our Collective Card of the Year in 2024
 
-The Radical Witch's Guide to Our Collective Card of the Year in 2024
-
-Contents:
+## Contents
 
 How to Use This Guide
 * Work With Us Throughout the Year
