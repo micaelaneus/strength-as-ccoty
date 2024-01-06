@@ -7,9 +7,9 @@ Contents
 * A Brief Introduction to Reading Tarot
 * Working in the Open Circle
   
-PART I: Strength in the Tarot
-* [Symbols of the Archetype](symbols-of-the-archetype.md)
-* [Interpretation](interpretation.md)
+[PART I: Strength in the Tarot](part-i-strength-in-the-tarot.md)
+* Symbols of the Archetype
+* Interpretation
   * Shadow Aspects
   * In Readings
 * [JOURNAL: The Chariot Rides On](the-chariot-rides-on.md)
