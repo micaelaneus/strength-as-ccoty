@@ -3,10 +3,15 @@
 The stars do not map out our lives; they only show us the edges of our comfort zones. Astrology should put us in touch with our limits and motivate us to test them, joyfully and compassionately, as acts of cosmic self-love. We envision your life as a luminous jewel spinning in space, every facet a wonder to behold, and hope this work inspires you to go star-gazing with us.
 
 SIGN - Leo
+
 PLANET - The Sun
+
 ELEMENT - Fire
+
 DATES - Jul. 23 to Aug. 22
+
 HOUSE - VIII
+
 MODALITY - Fixed
    
 ## THE SUN & LEO
