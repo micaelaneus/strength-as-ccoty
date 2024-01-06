@@ -34,7 +34,7 @@ Contents
 * [JOURNAL: Strength & Your Card of the Year](journal-strength-and-your-coty.md)
 * [TAROT: The Mutual Aid Spread](the-mutual-aid-spread.md)
   
-PART V: Open Circle Work
+[PART V: Open Circle Work](part-v-open-circle-work.md)
 * Embrace Embodiment
 * Gather Council
 * Form an Affinity Group
