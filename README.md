@@ -46,6 +46,8 @@ Resources & References
 
 ## Legal Notices
 
+![q_wands_kitty](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/7c732d77-e8ef-4fe2-ae4e-0752e7c090f6)
+
 ### COPYRIGHT
 
 Copyright © 2024 Touchwood Tarot. All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
