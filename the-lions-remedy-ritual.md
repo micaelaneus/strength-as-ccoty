@@ -83,8 +83,8 @@ Review the cards you pulled along your journey.
 
 Taking all these ideas into consideration, set an intention for the next few months. Write down what you desire and what action/s you will perform to manifest it in one clear sentence. Good intentions capture processes and actions within our control whereas a goal focuses on outcomes, which we may not control.
     
-    * “I’m going to get a job.”* Okay.
-    * “I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.”* Bingo!
+*“I’m going to get a job.”* Okay.
+*“I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.”* Bingo!
 
 ## CLOSE THE RITUAL SPACE
 
