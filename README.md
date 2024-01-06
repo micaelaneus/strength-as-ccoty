@@ -7,6 +7,7 @@ How to Use This Guide
 * Work With Us Throughout the Year
 * A Brief Introduction to Reading Tarot
 * Working in the Open Circle
+* 
 PART I: Strength in the Tarot
 * Symbols of the Archetype
 * Interpretation
@@ -14,22 +15,26 @@ PART I: Strength in the Tarot
  * In Readings
 * JOURNAL: The Chariot Rides On
 * TAROT: The Lemniscate Spread
+  
 PART II: Ritual Strategies
 * Mineral & Plant Allies
 * Create Powerful Altars
 * Visit Powerful Altars
 * Cast a Spell or Perform a Ritual
 * RITUAL: The Lion's Remedy
+* 
 PART III: Astrology
 * The Sun & Leo
 * Fire & The Suit of Wands
 * Strength in Your Natal Sky
 * JOURNAL: Ever Stronger Strengths
 * TAROT: The Twelve Houses Spread
+* 
 PART IV: Strength & Your Card of the Year
 * Select an Archetype for 2024
 * JOURNAL: Strength & Your Card of the Year
 * TAROT: The Mutual Aid Spread
+  
 PART V: Open Circle Work
 * Embrace Embodiment
 * Gather Council
@@ -37,6 +42,7 @@ PART V: Open Circle Work
 * Re-enchant Your Life
 * CHECKLIST: Gearing Up for Your Strength Year
 * Closing
+  
 Resources & References
 
 ## Copyright
