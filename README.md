@@ -22,7 +22,7 @@ Contents
 * Cast a Spell or Perform a Ritual
 * [RITUAL: The Lion's Remedy](the-lions-remedy-ritual.md)
   
-PART III: Astrology
+[PART III: Astrology](part-iii-astrology.md)
 * The Sun & Leo
 * Fire & The Suit of Wands
 * Strength in Your Natal Sky
