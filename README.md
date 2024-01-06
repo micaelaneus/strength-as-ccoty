@@ -15,12 +15,12 @@ Contents
 * [JOURNAL: The Chariot Rides On](the-chariot-rides-on.md)
 * [TAROT: The Lemniscate Spread](the-lemniscate-spread.md)
   
-PART II: Ritual Strategies
+[PART II: Ritual Strategies](part-ii-ritual-strategies.md)
 * Mineral & Plant Allies
 * Create Powerful Altars
 * Visit Powerful Altars
 * Cast a Spell or Perform a Ritual
-* RITUAL: The Lion's Remedy
+* [RITUAL: The Lion's Remedy](the-lions-remedy-ritual.md)
   
 PART III: Astrology
 * The Sun & Leo
