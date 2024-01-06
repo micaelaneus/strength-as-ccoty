@@ -1,4 +1,4 @@
-# PART I: STRENGTh IN THE TaROT
+# PART I: Strength in the Tarot
 
 The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests. 
 
