@@ -29,7 +29,7 @@ Contents
 * [JOURNAL: Ever Stronger Strengths](ever-stronger-strengths.md)
 * [TAROT: The Twelve Houses Spread](the-twelve-houses-spread.md)
   
-PART IV: Strength & Your Card of the Year
+[PART IV: Strength & Your Card of the Year](part-vi-strength-and-your-coty.md)
 * Select an Archetype for 2024
 * [JOURNAL: Strength & Your Card of the Year]
 * [TAROT: The Mutual Aid Spread
