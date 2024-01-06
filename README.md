@@ -27,12 +27,12 @@ Contents
 * Fire & The Suit of Wands
 * Strength in Your Natal Sky
 * [JOURNAL: Ever Stronger Strengths](ever-stronger-strengths.md)
-* TAROT: The Twelve Houses Spread
+* [TAROT: The Twelve Houses Spread](the-twelve-houses-spread.md)
   
 PART IV: Strength & Your Card of the Year
 * Select an Archetype for 2024
 * [JOURNAL: Strength & Your Card of the Year]
-* TAROT: The Mutual Aid Spread
+* [TAROT: The Mutual Aid Spread
   
 PART V: Open Circle Work
 * Embrace Embodiment
