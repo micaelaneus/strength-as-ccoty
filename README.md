@@ -12,8 +12,8 @@ PART I: Strength in the Tarot
 * [Interpretation](interpretation.md)
   * Shadow Aspects
   * In Readings
-* JOURNAL: The Chariot Rides On
-* TAROT: The Lemniscate Spread
+* [JOURNAL: The Chariot Rides On](the-chariot-rides-on.md)
+* [TAROT: The Lemniscate Spread](the-lemniscate-spread.md)
   
 PART II: Ritual Strategies
 * Mineral & Plant Allies
