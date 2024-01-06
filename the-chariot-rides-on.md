@@ -1,6 +1,9 @@
 # JOURNAL: The Chariot Rides On
 
-Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience. Use these journal prompts to review last year, which fell under the archetype of The Chariot, before moving into our Strength year. 
+Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience. Use these journal prompts to review last year, which fell under the archetype of The Chariot, before moving into our Strength year.
+
+![07chariot](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/78db8324-9d16-4d63-9c2e-015100a391d8)
+
 
 The Chariot card calls up themes of diligence, mastery, and action. The Driver shown on this card feels irresistibly sexy rather than romantic, largely due to their aura of self-confidence. They have linked their hard-earned expertise with the power of intuition and passion, represented by the two sphinxes. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness. 
 
