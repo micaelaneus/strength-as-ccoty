@@ -11,3 +11,5 @@ Work through the relevant aspects of your natal chart, starting with the three h
 5. How do you manifest or explore those themes into your life, as practically as possible? Challenge yourself to find three ways to develop each of your most fascinating house-sign-planet combinations. 
 
 A house devoid of any planetary bodies does not foretell doom or deprivation in that area of your life. So-called "empty houses" signify that you have less struggle or drama in that area, which means those topics will not provide you the most motivation for growth. An empty house does not guarantee that you will never face difficulty, of course, only that your thorniest challenges lie elsewhere in the chart. 
+
+![Astro Venn Diagram (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38c00b8b-303d-44c1-b7e3-a27858ef2434)
