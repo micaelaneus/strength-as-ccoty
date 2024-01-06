@@ -31,7 +31,7 @@ Contents
   
 [PART IV: Strength & Your Card of the Year](part-vi-strength-and-your-coty.md)
 * Select an Archetype for 2024
-* [JOURNAL: Strength & Your Card of the Year]
+* [JOURNAL: Strength & Your Card of the Year](journal-strength-and-your-coty.md)
 * [TAROT: The Mutual Aid Spread
   
 PART V: Open Circle Work
