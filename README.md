@@ -2,7 +2,7 @@
 
 Contents
 
-[How to Use This Guide](how-to-use-this-guide)
+[How to Use This Guide](how-to-use-this-guide.md)
 * Work With Us Throughout the Year
 * A Brief Introduction to Reading Tarot
 * Working in the Open Circle
