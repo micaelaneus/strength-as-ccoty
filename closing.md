@@ -1,6 +1,6 @@
 # Closing
 
-Like many of you, we come to the end of 2023 steeped in grief and simmering with rage. Tremendous loss in our own lives, chief among them the death of Leigh Clare from cancer at Samhain, along with an ever-lengthening list of global atrocities has made this past year a real doozy. 
+Like many of you, we come to the end of 2023 steeped in grief and simmering with rage. Tremendous loss in our own lives, chief among them the death of Leigh Clare from cancer at Samhain, along with an ever-lengthening list of global atrocities has made this past year a real doozy.
 
 Truthfully, we wrote this guide for ourselves. A sense of dread started to poison our days, and the only reliable antidote was radical witchcraft. The courage and conviction of the Strength archetype has arrived in the nick of time, in our opinion, and we’re ready to roll up our sleeves. We hope the material presented here gives you some tools to work with this card for the highest good, too.
 
