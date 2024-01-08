@@ -17,9 +17,13 @@ This first section lays out the essential equipment, concepts, and methods used 
 We present five methodologies for working with Strength that both reinforce and complicate one another, each in its own chapter, along with structured exercises to familiarize you with how to put them into action.
 
 Part I: Tarot covers the symbols and traditional interpretations of card.
+
 Part II: Ritual shares strategies to amplifiy your tarot practice with elements like ecological allies and spellcraft.
+
 Part III: Astrology gives you means to personalize Strength as a lens into your own psychological evolution using your natal chart.
+
 Part IV: Your Card of the Year shows you how to find and then incorporate a second archetype derived from your birth date.
+
 Part V: The Open Circle shows you how to take Strength into your daily life, and maybe all the way into the streets
 
 You need only three essential tools to use this guide: a journal, a tarot deck, and your astrological natal chart.
@@ -83,7 +87,7 @@ You totally should, though.
 
 Everyone refers to the writing of other tarot practitioners, even experts (barf), because we find inspiration in the diversity of thought. Never, ever apologize for looking up a card. At the same time, we encourage you to trust your intuition. Pay attention to your immediate impressions and associations, jot them down in your journal, and then look up what others have to say.
 
-We adhere to a mythopoetic style of reading tarot that draws from folklore and mythology, Jungian psychology, symbolic traditions, metaphysical systems like alchemy, and other cultural sources that emphasize the transformative power of self-discovery. This approach focuses on developing potential rather than making predictions. Any card that you pull for a placement will relates a theme, asks a question, or raises a flag for your consideration. The magic comes from blending its traditional or common interpretations with your intuition, possibly with the assistance of a spread or tarot reader. We do not surrender our free will or peace of mind to a piece of paper, but we thoughtfully listen to long-established wisdom inscribed on its surface before tossing it out. 
+We adhere to a mythopoetic style of reading tarot that draws from folklore and mythology, Jungian psychology, symbolic traditions, metaphysical systems like alchemy, and other cultural sources that emphasize the transformative power of self-discovery. This approach focuses on developing potential rather than making predictions. Any card that you pull for a placement will relates a theme, asks a question, or raises a flag for your consideration. The magic comes from blending its traditional or common interpretations with your intuition, possibly with the assistance of a spread or tarot reader. We do not surrender our free will or peace of mind to a piece of paper, but we thoughtfully listen to long-established wisdom inscribed on its surface before tossing it out.
 
 This school of thought means that even the most cheerful or sexy archetype has a shadow, a term that describes the less obvious and usually more destructive expressions of its energies. Even a card like the Four of Wands that shows happy people on a sunny day carries warnings: over-reliance on escapist coping mechanisms ("it's not a party if it happens every night"), unhelpful peer pressure, or perhaps conflict-avoidance. Following the same principle, every card has an empowering aspect. For instance, The Devil urges us to let the liberatory power of passion move us beyond the reach of shame, letting us live more authentically.
 
