@@ -30,6 +30,11 @@ Work through the relevant aspects of your natal chart, starting with the three h
 
 ![Astro Venn Diagram (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38c00b8b-303d-44c1-b7e3-a27858ef2434)
 
+
+## TRANSITION
+
+Now that we have a handle on how Strength expresses in your natal chart, let's check in with the rest of your sky. TWELVE HOUSES
+
 ## Example: VENUS IN LEO IN THE EIGHTH HOUSE
 
 Someone with Venus in their House of Transformations should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. They might see very literal changes to make such as starting to date again or making some requests in the bedroom. 

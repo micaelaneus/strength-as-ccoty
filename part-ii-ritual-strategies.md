@@ -30,6 +30,8 @@ Stones represent Earth, which balances Fire's more manic manifestations. Consequ
 
 Choose only ethically sourced herbs and stones, work within your cultural tradition, and shop locally. Don’t taint your magic with settler-colonial ick, especially in a year ruled by an amplifying archetype like Strength. When in doubt, leave it out… of your online shopping cart.
 
+* a word about diamonds: just don't. but if you do, etc.
+
 ## CREATED ALTARS
 
 While you do not need an altar at home, you may very much enjoy one. Dedicate an area to ritual elements and objects that keep your mind on your magic. Tables are traditional but a corner of your desk, a bookshelf, or a windowsill works perfectly well. If you can’t devote that much space to a complex altar, get devious: a double-page collage in your journal stood upright makes a pleasant background, or try an empty tin of breath mints. All energy spent creating beauty and cultivating joy returns to you, three times three! (All energy spent impressing algorithms is wasted.)
@@ -39,6 +41,8 @@ You may find pleasure in honoring or calling in people who incarnate an aspect o
 ## NATURAL ALTARS
 
 You belong to the Earth and every atom sings for you. We long to worship your ineffable wonderfulness at the tops of mountains and crests of high tides. Please go someplace that puts you deeply in touch with your power as one of this planet’s most favored children and we promise to meet you there. (Or at least send a worthy representative to honor you in our stead.) May we suggest a meadow blooming after a flood, a forest regrowing after a wildfire, or a pigeon nesting in the plastic anti-pigeon spikes?
+
+* important bc rewilding
 
 ## SPELLCRAFT
 

@@ -6,6 +6,7 @@ Zodiac spreads take us on a journey from our innermost selves in the First House
 
 
 ## BEFORE YOU BEGIN
+
 This spread is complex, not gonna lie. Reading it gets both easier and richer the more you understand astrology and your natal chart, and puzzling through this spread is one way to build that expertise. Hang in there.
 Zodiac spreads have moments when they feel most helpful. First, the start of a new year in whatever calendars you use (Gregorian, lunar, Jewish, etc.) as well as at the spring equinox (aka the astrological “new year”) and your birthday. Secondly, any other time you experience a major reset event such as a big move, change in your relationship status, career shift, etc.
 
@@ -14,6 +15,7 @@ We do not recommend zodiac spreads at the birth/adoption of a child *when done f
 Lastly, we fully encourage you to riff on the prompts below to match any question you have for that house. For instance, someone who recently “came out” (in any sense of the phrase) may have a very clear concern to explore in their First House. We preferred to give a cluster of questions rather than an explicit label for the card placements so your intuition has room to wiggle. Answer the question that feels most resonant to you.
 
 ## READING THE TWELVE HOUSES
+
 If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Take a moment to center yourself with a few deep breaths and settle into your body. Articulate your query mentally or in writing to strengthen and focus your intention.
 
 When you feel ready, shuffle and cut the cards. Place all twelve cards face down, starting at the First House and moving counter-clockwise to pull a card for each successive house up to the Twelfth. Placing all cards face-up at once will overwhelm your reading, believe! Lay out the complete map and then take the journey one step at a time.
