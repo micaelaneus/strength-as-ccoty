@@ -1,6 +1,6 @@
 # WELCOME
 
-Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. Inside, you’ll find three detailed spreads based on mythopoetic tarot with an explanation of how to blend basic astrology into your readings. We’ve given you several themes you might want to explore in spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. In the final sections, you’ll find some ideas on how to extend this collective work by incorporating your individual Card of the Year (COTY) and working in the open circle (more on that below).
+Welcome to our Strength year! We made this guide to serve your growth and well-being, as well as support your involvement in collective struggle. 
 
 * explain collective card idea
 * majors as narrative arc
@@ -9,6 +9,8 @@ Welcome to our Strength year! We made this guide to serve your growth and well-b
 ## HOW TO USE THIS GUIDE
 
 * arc of the guidebook
+
+Inside, you’ll find three detailed spreads based on mythopoetic tarot with an explanation of how to blend basic astrology into your readings. We’ve given you several themes you might want to explore in spell work alongside one full ritual to transition from a year of The Chariot (2023) into the incoming Strength year. In the final sections, you’ll find some ideas on how to extend this collective work by incorporating your individual Card of the Year (COTY) and working in the open circle (more on that below).
 
 You need only three essential tools to use this guide: a journal, a tarot deck, and your astrological natal chart.
 
@@ -103,9 +105,15 @@ Lastly, don’t try to use tarot to read minds– it’s not healthy, and it won
 ### INTERPRET A CARD
 
 Interpreting the cards skillfully takes blending the vast array of traditional meanings with your intuition at the moment you pull a card. Everyone refers to the writing of other tarot practitioners, even “experts” because we all find inspiration in the diversity of thought. Never apologize for looking up a card! At the same time, we encourage you to trust your intuition. Pay attention to your immediate impression and associations, jot them down in your journal, and then look up what others have to say.
-  
-You will inevitably pull cards with disturbing imagery and intimidating descriptions that many folks call “hard cards.” We firmly believe (and have personally experienced) that every card offers wise counsel in its way. Think of cards that upset you as bitter medicine: truths that hurt to swallow yet still may heal you. Also remember that a strong reading draws our attention to the path we’re walking, but it doesn’t control our steps. A card or spread that bothers you means that it’s time to find a fork in the road, not lay down in the middle of it.
 
 * add these notes to your tarot journal
+
+#### OUR STYLE OF READING TAROT
+ 
+* we use gender-neutral language even for gendered cards like The High Priestess. You do you. Find non-binary decks in Resources and References.
+* we have a mythopoetic approach - potentiality over prediction
+
+#### HARD CARDS
+You will inevitably pull cards with disturbing imagery and intimidating descriptions that many folks call “hard cards.” We firmly believe (and have personally experienced) that every card offers wise counsel in its way. Think of cards that upset you as bitter medicine: truths that hurt to swallow yet still may heal you. Also remember that a strong reading draws our attention to the path we’re walking, but it doesn’t control our steps. A card or spread that bothers you means that it’s time to find a fork in the road, not lay down in the middle of it.
 
 ## JOURNAL: THE CHARIOT RIDES ON

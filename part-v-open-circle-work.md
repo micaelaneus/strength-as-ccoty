@@ -6,9 +6,19 @@ All strength is collective strength. Microbiota co-create our bodies, and it tak
 
 As both word and archetype, Strength quite naturally evokes the body as a source of power and beauty. What bliss! But in keeping with our shadow theme (“capitalism ruins everything”), this same card brings up all manner of goopy anti-body ideologies like ableism and fatphobia. These ideas only pretend to want the best for the body; in fact, they never cease to invent new ways for us to dissociate, disparage, and destroy ourselves.
 
-Instead, we can make this year about reclaiming our wrinkly-rolly selves by uplifting the awesome aspects of Strength and consciously wrestling with its shadows. First, pick a loving practice to root yourself into flesh like stretching before bed or using your fist to practice french-kissing. Lift weights without making it a referendum on your self-worth or gender identity, and vow to touch more trees. Start the revolution in one sentence: *I Never Criticize My Body.*
+Instead, we can make this year about reclaiming our wrinkly-rolly selves by uplifting the awesome aspects of Strength and consciously wrestling with its shadows. First, pick a loving practice to root yourself into flesh like stretching before bed or using your fist to practice french-kissing. Lift weights without making it a referendum on your self-worth or gender identity, and vow to touch more trees. Start the revolution in one sentence: I Never Criticize My Body.
 
 Next, deal with the shadows by learning about ableism, body inclusivity, and the Three Furies of Disembodiment: Beauty, Diet, and Wellness Cultures. Because these ideas affect every one of us (though some more directly than others), changing them is a collective responsibility. Identify how they inform (and deform!) your life and worldview, then find ways to alter course.
+
+## FORM AN AFFINITY GROUP
+
+We all see the threats waiting in the coming year, and we must prepare to meet them collectively. An affinity group refers to two to five people who organize themselves based on shared desire and ability to participate in political action. They let us attend large protests more safely and still do smaller direct actions independently, according to the interests and schedules of its members. It's as sacred as any coven, even when you're the only member who practices radical witchcraft.
+
+Invite a few like-minded friends to get together now, while things remain relatively calm, to prepare for more tumultuous moments. Share the expenses of making banners or assembling first-aid kits, and make them together as part of a potluck. Create a transportation plan and a fund for gas money if you expect to travel for protests. Find out which causes matter most to folks and how they want to demonstrate their support when those causes get attacked.
+
+Plan to check in with one another during an action, and decide how and when the group will leave one. Talk about disability, arrest-ability, meds, childcare, and other critical parts of life that need consideration, and then get ice cream and go roller-skating! We are forming affinity groups for collective power, not doom squads. Militant joy FTW!
+
+Never, ever pressure anyone to join or agree to an action. Commitment is key, and that requires authenticity and consent.
 
 ## GATHER COUNCIL
 
@@ -16,19 +26,13 @@ At some point every day, preferably in the morning, recite the name of every non
 
 Writer Sophie Strand created this simple but powerful ritual and shared it publicly. We put a link to one of her pieces about this practice in Resources & References.
 
-## FORM AN AFFINITY GROUP
-
-We all see the threats waiting in the coming year, and we must prepare to meet them collectively. An affinity group refers to two to five people who organize themselves based on shared desire and ability to participate in political action. They let us attend large protests more safely and still do smaller direct actions independently, according to the interests and schedules of its members. It's as sacred as any coven, even when you're the only member who practices radical witchcraft. 
-
-Invite a few like-minded friends to get together now, while things remain relatively calm, to prepare for more tumultuous moments. Share the expenses of making banners or assembling first-aid kits, and make them together as part of a potluck. Create a transportation plan and a fund for gas money if you expect to travel for protests. Find out which causes matter most to folks and how they want to demonstrate their support when those causes get attacked. 
-
-Plan to check in with one another during an action, and decide how and when the group will leave one. Talk about disability, arrest-ability, meds, childcare, and other critical parts of life that need consideration, and then get ice cream and go roller-skating! We are forming affinity groups for collective power, not doom squads. Militant joy FTW!
-
-Never, ever pressure anyone to join or agree to an action. Commitment is key, and that requires authenticity and consent. 
+* maybe put the link in situ??
 
 ## RE-ENCHANT YOUR LIFE
 
 In the past, people worked with beautiful tools built to honor and inspire those who used them. Industrial capitalism took that away, robbing daily life of some of its splendor. Take it back by re-framing the mundane or sanctifying your tools.
+
+* why this is important-- keep limber imaginations
 
 * Write your to-do list poetically. Don’t go to the dentist— get your seashells polished.
 * Turn your morning mug into a sacred vessel. Fill it with stone and plant allies that attract the power you want to infuse into your life and leave it under a full moon.

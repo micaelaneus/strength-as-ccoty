@@ -12,10 +12,11 @@ Now that you’ve chosen a Card of the Year (COTY), we can explore how it inters
 Wrap up your journal exercise by choosing a little slogan or motto for the coming year that captures the spirit of your new team. You don’t need the world’s most poetic one-liner to get value here, so pick a phrase today and change it when lightning strikes.
 
 ## WHEN YOUR CARD OF THE YEAR IS STRENGTH
+
 A double-Strength year, yay! Also, woof. Whatever happens, this year promises to transform you. You can use the same journal prompts listed above because haven’t you wondered what, um, meeting yourself would be like? Imagine overhearing the Figure talking to themselves or their fur-baby Lion.
 
-We do have one additional prompt for double-Strengthies: 
+We do have one additional prompt for double-Strengthies:
 
-7. Every archetype has an internal equilibrium, a yin-yang balance that generates wholeness. Match any shadow elements you wrote down in the previous question with a stabilizing quality that Strength also possesses. Counteract workaholism with the powerful sense of embodiment that this Figure radiates from head to toe, for instance, and put some playdates in your calendar to get yourself outside.
+* Every archetype has an internal equilibrium, a yin-yang balance that generates wholeness. Match any shadow elements you wrote down in the previous question with a stabilizing quality that Strength also possesses. Counteract workaholism with the powerful sense of embodiment that this Figure radiates from head to toe, for instance, and put some playdates in your calendar to get yourself outside.
 
 Finish by selecting one or more short mottos for the year as described above.

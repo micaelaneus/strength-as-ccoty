@@ -1,16 +1,28 @@
-# PART I: Strength in the Tarot
+# PART I: Tarot
 
-The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests. 
+* put this transition at the end of the preceding section: now that we've got a handle on our methodology and closed out our Chariot year, we're ready to move into strength year. We'll take a deep dive into the symbols and themes of the archetype as depicted on the card in the next section, and then move into how to activate these ideas with ritual and astrology in the later sections.
+
+## INTRO
+
+I don't want ^^ that header, it's there so Markdown stops barking at me.
+
+* a little more intro material which might include these ideas:
+
+Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility.
+
+We cover the astrological correspondences in greater detail in Astrology. Plants, minerals, and other associations with Strength are found in Ritual Strategies. Let's start by looking at the symbols found on the tarot card itself as well as its place in the narrative arc of the Major Arcana, called The Fool's Journey.
+
+* place in the narrative arc
+
+The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests.
 
 ![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/0736cce7-15cc-4979-abd4-ab57fcadd694)
+
+## SYMBOLS OF THE ARCHETYPE
 
 In an open field, we see a Figure holding the mouth of a Lion with a full mane and lolling tongue. The Lion has claws yet looks subdued and its tail tucks between its legs. The Figure wears a simple white robe like those worn by initiates or romanticized peasants. Garlands of blooming flowers that might be roses wrap around their waist, and they wear a crown of meadow grasses or spring wheat. The only jewelry or ornament we see is the lemniscate that floats above the Figure’s head. In the distance, a forest lies at the base of a mountain range. The sky is cloudless.
 
 Roman numerals for eight appear at the top-center and a box separates the card’s title, “Strength,” from the imagery. The artist, Pamela Coleman Smith, put her stylized initials at the bottom-right of her illustration.
-
-## SYMBOLS OF THE ARCHETYPE
-
-We cover the astrological correspondences in greater detail in Astrology. Plants, minerals, and other associations with Strength are found in Ritual Strategies. Let's start by looking at the symbols found on the tarot card itself.
 
 ### THE LION’S JAWS
 
@@ -30,9 +42,15 @@ The vibrant foliage adorning the Figure’s waist and crown exudes joy and boldl
 
 ## INTERPRETATION
 
+____
+
+THESE COULD BE THE BEGINNING OF PART I: TAROT
+
 First and foremost, the Strength card encourages us to draw on courage and compassion to navigate challenges with conviction. This card encourages us to confront our fears, embrace challenges, and cultivate resilience on the journey toward self-discovery. As our Collective Card of the Year, it promises a period of tremendous growth and expansive possibilities that flourish even amidst obstacles. The roses winding around the Figure’s waist and crown have thorns, no doubt– yet nothing stops their blooming.
 
 In short, this card says *you can do it!* Mercifully, it also provides hints on how.
+
+____
 
 Look first at the peaceful expression on The Figure’s face. It tells us that the kind of robust resilience we seek does not come through domination and control. Instead, we find strength through self-acceptance and equanimity. Celebrating our power helps us overcome our fears, a major theme of this card. We develop a healthy sense of ego by first meeting life’s challenges and then taking a moment to appreciate our newfound abilities. Reflect on a time you’ve been a bit bolder than you thought possible. Luxuriate in the feeling, regardless of the outcome. Savor yourself with the same shameless delight of a cat licking itself.
 
@@ -46,7 +64,7 @@ Self-expression is tricky in a world built on oppression. We suppress aspects of
 
 Finally, notice that the Figure approaches the Lion fearlessly. Their relationship has a caring vibe. The Strength card reminds us that we all have an expressive power within us that exists beyond the reach of shame or self-deception. Strength in this light looks like someone who has faced their fears with compassion and found a deep well of self-acceptance to draw from as they face the world.
 
-### SHADOW ASPECTS
+## SHADOW ASPECTS
 
 Or does the Figure grip the Lion’s jaws as a show of superiority and domination?
 
@@ -68,7 +86,7 @@ On a collective level, these shadows manifest as political inertia. We vote for 
 
 In its darkest, most hateful manifestation, this card signifies fascism. The word fascism comes from the Italian fascia, meaning a bundle of sticks bound together. The image represents the idea of strength in numbers: a bundle can resist a force that would break a solitary stick. It could have been a beautiful metaphor but jabronies took it all the way to crap town. Resisting the global reemergence of fascism is perhaps the most critical collective action we will take this year. 
 
-### IN READINGS
+## IN READINGS
 
 Tarot practitioners commonly read the Strength card as an amplifier. Its presence emphasizes the influence of that placement and possibly the surrounding cards. When drawn as the signifier (often the first card of a spread) it suggests that the focus of the reading has profound meaning or potential power for the subject.
 
@@ -77,4 +95,3 @@ Watch too for the appearance of Wands, particularly the Queen of Wands. A fiery 
 Previous incarnations of the Tarot called this card “Force.” That word carries a more concentrated energy, implying a strong and tightly directed use of willpower. See if that interpretation fits better in that placement.
 
 Lastly, this sunny archetype moonlights as a curse-breaker. Destructive interpersonal dynamics, ruts that feel impossible to escape, and compulsive behaviors of all sorts can be changed when Strength appears in a relevant placement.
-
