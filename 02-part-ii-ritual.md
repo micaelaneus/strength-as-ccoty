@@ -1,4 +1,4 @@
-# PART II: Ritual Strategies
+# PART II: Ritual
 
 Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals or to sanctify the nitty-gritty work of living. All reasons are good reasons. Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
 
@@ -10,15 +10,15 @@ Culture is ritual: what we do, when and how we do it, and the stories we use to 
 * movement
 * music and sound
 
-Now let's look at ritual elements and activities to work with Strength
+Now let's look at ritual elements and activities to work with Strength.
 
 ## MINERAL & PLANT ALLIES
 
 Fresh or dried roses and rosewater; edible herbs associated with protection magic such as sage, bay leaf, and rosemary; frankincense above all other incenses but also smudging plants like mugwort or cedar that have fortifying uses (as opposed to healing or cleansing herbs like sage and palo santo); essential oils containing these herbs.
 
-Hardy plants with woody stems make great additions to your altar this year: sprigs of evergreens like pine, juniper, and mistletoe. (No, it’s not just for smooching!) Stout species of brush grow in nearly every climate, so find a new local plant ally. If the element of water rules your Card of the Year (The High Priestess, Death, etc.) then willow, cattails, or other tough marshy plants make nice additions. To those suffering from heartaches or struggling to adapt to a sudden unwelcome change, we recommend getting a Rose of Jericho (Selaginella lepidophylla), also called a resurrection plant.
+Hardy plants with woody stems make great additions to your altar this year: sprigs of evergreens like pine, juniper, and mistletoe. (No, it’s not just for smooching!) Stout species of brush grow in nearly every climate, so find a new local plant ally. If the element of water rules your personal Card of the Year (see Part V) then willow, cattails, or other tough marshy plants make nice additions. To those suffering from heartaches or struggling to adapt to a sudden unwelcome change, we recommend getting a Rose of Jericho (Selaginella lepidophylla), also called a resurrection plant.
 
-* sunflowers also common, can be invoked with seeds-- get plain ones, not BBQ or Jalepeno Salsa-flavored.
+Exhuberant, boisterous sunflowers remind us more of The Sun archetype than Strength but we defer to your wishes. The seeds make lovely altar offerings to share with neighboring birds and squirres-- raw and unsalted ones, not BBQ-flavored!
 
 Simple teas with acidic or citrusy flavors evoke the zesty energy and candor of Strength. Find a lemony tea to drink only while doing creative work (perhaps with ginger or other invigorating herb), to build a sense-memory into your practice. Blends that feature Schisandra berries, hibiscus, or even licorice (i.e., gentle detox herbs) complement shadow work. Richly fragrant teas dominated by rose or lavender will always make us think of Leo. You might get overly energized at times this year, so keep calming herbs like chamomile and catnip in the cupboard as well.
 
@@ -30,9 +30,7 @@ Stones represent Earth, which balances Fire's more manic manifestations. Consequ
 
 Choose only ethically sourced herbs and stones, work within your cultural tradition, and shop locally. Don’t taint your magic with settler-colonial ick, especially in a year ruled by an amplifying archetype like Strength. When in doubt, leave it out… of your online shopping cart.
 
-* a word about diamonds: just don't. but if you do, etc.
-
-## CREATED ALTARS
+## ALTAR STRATEGIES
 
 While you do not need an altar at home, you may very much enjoy one. Dedicate an area to ritual elements and objects that keep your mind on your magic. Tables are traditional but a corner of your desk, a bookshelf, or a windowsill works perfectly well. If you can’t devote that much space to a complex altar, get devious: a double-page collage in your journal stood upright makes a pleasant background, or try an empty tin of breath mints. All energy spent creating beauty and cultivating joy returns to you, three times three! (All energy spent impressing algorithms is wasted.)
 
@@ -41,8 +39,6 @@ You may find pleasure in honoring or calling in people who incarnate an aspect o
 ## NATURAL ALTARS
 
 You belong to the Earth and every atom sings for you. We long to worship your ineffable wonderfulness at the tops of mountains and crests of high tides. Please go someplace that puts you deeply in touch with your power as one of this planet’s most favored children and we promise to meet you there. (Or at least send a worthy representative to honor you in our stead.) May we suggest a meadow blooming after a flood, a forest regrowing after a wildfire, or a pigeon nesting in the plastic anti-pigeon spikes?
-
-* important bc rewilding
 
 ## SPELLCRAFT
 

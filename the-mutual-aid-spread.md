@@ -16,4 +16,4 @@ The second set shows contradicting desires, characteristics, or patterns of Stre
 
 The final pair points to one of Strength’s themes that either balances or encourages an aspect of your COTY (Card 7) and a COTY card theme that does the same for Strength (Card 8). In other words, how they bring out the best in one another.
 
-Pause. Shift your perspective so that rather than eight individual cards, you see the spread as one unified image conveying a single message. A query might bubble up inside you. Hold either the spread’s message or this fresh query in mind as you pull a final card to reveal a message co-authored by your allies for the year (Card 9). 
+Pause. Shift your perspective so that rather than eight individual cards, you see the spread as one unified image conveying a single message. A query might bubble up inside you. Hold either the spread’s message or this fresh query in mind as you pull a final card to reveal a message co-authored by your allies for the year (Card 9).
