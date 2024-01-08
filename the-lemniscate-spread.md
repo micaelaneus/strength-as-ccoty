@@ -15,7 +15,6 @@ CARD 2 - WANING: An external energy or entity with declining significance
 
 CARD 3 - SHRINKING: Emotional (shadow) preoccupation or belief to integrate and move on from
 
-CARD 5 - BURNT OFFERING: Something to surrender as you cycle forward
 CARD 4 - CONCLUDING: An area or ability, perhaps a struggle, that nears completion
 
 CARD 5 - OFFERING: Something to surrender as you cycle forward
