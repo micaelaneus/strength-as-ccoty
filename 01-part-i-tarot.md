@@ -86,7 +86,7 @@ Perhaps you notice another theme uniting Strength’s shadows: the capacity to e
 
 On a collective level, these shadows manifest as political inertia. We vote for “the lesser of two evils” rather than organize ourselves to build a more just and beautiful world. We spin our wheels on social media rather than show up in real life, or do any number of other behaviors that disconnect us from our collective power. Problems with accountability, consent, and cultural appropriation fall into this same category.
 
-In its darkest, most hateful manifestation, this card signifies fascism. The word fascism comes from the Italian fascia, meaning a bundle of sticks bound together. The image represents the idea of strength in numbers: a bundle can resist a force that would break a solitary stick. It could have been a beautiful metaphor but jabronies took it all the way to crap town. Resisting the global reemergence of fascism is perhaps the most critical collective action we will take this year. 
+In its darkest, most hateful manifestation, this card signifies fascism. The word fascism comes from the Italian fascia, meaning a bundle of sticks bound together. The image represents the idea of strength in numbers: a bundle can resist a force that would break a solitary stick. It could have been a beautiful metaphor but jabronies took it all the way to crap town. Resisting the global reemergence of fascism is perhaps the most critical collective action we will take this year.
 
 ## IN READINGS
 
