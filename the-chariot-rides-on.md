@@ -49,3 +49,5 @@ Take a deep breath and remember points when exasperation, rage, or protective ap
 3. How and when did I check out?
 
 When you finish, copy items from these prompts that you’d like to release onto bits of paper for use in The Lion's Remedy Ritual.
+
+Now that we've reviewed 2023 through the eyes of The Chariot, let's take a closer look at Strength as the archetype for the year ahead. We'll take a deep dive into card's symbols and interpretation in the next section before learning how to activate them through ritual and astrology later in the guide.
