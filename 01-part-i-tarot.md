@@ -14,6 +14,8 @@ We cover the astrological correspondences in greater detail in Astrology. Plants
 
 * place in the narrative arc
 
+The Major Arcana lays out a sequence of metaphorical rites of passage that begin with a novice (Key 0 - The Fool) setting out on the road and ends when they attain a sort of mystical integration with the cosmos (Key 21 - The World).
+
 The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests.
 
 ![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/0736cce7-15cc-4979-abd4-ab57fcadd694)
