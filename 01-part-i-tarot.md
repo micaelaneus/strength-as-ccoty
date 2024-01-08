@@ -1,22 +1,12 @@
 # PART I: Tarot
 
-* put this transition at the end of the preceding section: now that we've got a handle on our methodology and closed out our Chariot year, we're ready to move into strength year. We'll take a deep dive into the symbols and themes of the archetype as depicted on the card in the next section, and then move into how to activate these ideas with ritual and astrology in the later sections.
+First and foremost, the Strength card encourages us to draw on courage and compassion to navigate challenges with conviction. This card encourages us to confront our fears, embrace challenges, and cultivate resilience on the journey toward self-discovery. As our Collective Card of the Year, it promises a period of tremendous growth and expansive possibilities that flourish even amidst obstacles.
 
-## INTRO
+The Major Arcana lays out a sequence of metaphorical rites of passage that begin with a novice (Key 0 - The Fool) setting out on the road and ends when they attain a sort of mystical integration with the cosmos (Key 21 - The World). Strength comes in the first half of this journey where we acquire psychological tools needed to navigate society and achieve self-actualization in the second half.
 
-I don't want ^^ that header, it's there so Markdown stops barking at me.
+Strength teaches us how to balance the raw power of our will as developed in the Seventh (The Chariot) with a more mature understanding of what strength really means: resiliance, emotional self-regulation, and the ability to meet others where they are. Cultivating these "soft skills" in this Eighth Key prepares us to pass The Hermit’s more esoteric tests in the Ninth.
 
-* a little more intro material which might include these ideas:
-
-Strength expresses itself candidly, never dimming the flame of its desire or hiding its vulnerability, and thus approaches invincibility.
-
-We cover the astrological correspondences in greater detail in Astrology. Plants, minerals, and other associations with Strength are found in Ritual Strategies. Let's start by looking at the symbols found on the tarot card itself as well as its place in the narrative arc of the Major Arcana, called The Fool's Journey.
-
-* place in the narrative arc
-
-The Major Arcana lays out a sequence of metaphorical rites of passage that begin with a novice (Key 0 - The Fool) setting out on the road and ends when they attain a sort of mystical integration with the cosmos (Key 21 - The World).
-
-The Eighth Key directs our energy toward balancing the raw power of our will with an enlightened attitude of acceptance. This key follows The Chariot, when we learn to make our way through the world, and prepares us to pass The Hermit’s more esoteric tests.
+We cover the astrological correspondences in greater detail in Astrology. Plants, minerals, and other associations with Strength are found in Ritual Strategies. For now, let's look at the symbols found on the tarot card itself and explore their meaning.
 
 ![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/0736cce7-15cc-4979-abd4-ab57fcadd694)
 
@@ -40,31 +30,21 @@ White robes symbolize purity, spiritual clarity, and the alignment of one's acti
 
 ### FLOWERS & WREATHS
 
-The vibrant foliage adorning the Figure’s waist and crown exudes joy and boldly shouts *huzzah for Life!* In a socio-economic system built on constraints, flourishing takes Strength. Think of the audacity shown by wildflowers growing along a highway median, pushing up through the asphalt designed to destroy them. Or picture the vivid genitalia-like splendor of the orchid. No shame, baby. Do you have the courage of a dandelion? 
+The vibrant foliage adorning the Figure’s waist and crown exudes joy and boldly shouts *huzzah for Life!* In a socio-economic system built on constraints, flourishing takes Strength. Think of the audacity shown by wildflowers growing along a highway median, pushing up through the asphalt meant to destroy them. Or picture the vivid genitalia-like splendor of the orchid. No shame, baby. Do you have the courage of a dandelion?
 
 ## INTERPRETATION
-
-____
-
-THESE COULD BE THE BEGINNING OF PART I: TAROT
-
-First and foremost, the Strength card encourages us to draw on courage and compassion to navigate challenges with conviction. This card encourages us to confront our fears, embrace challenges, and cultivate resilience on the journey toward self-discovery. As our Collective Card of the Year, it promises a period of tremendous growth and expansive possibilities that flourish even amidst obstacles. The roses winding around the Figure’s waist and crown have thorns, no doubt– yet nothing stops their blooming.
-
-In short, this card says *you can do it!* Mercifully, it also provides hints on how.
-
-____
 
 Look first at the peaceful expression on The Figure’s face. It tells us that the kind of robust resilience we seek does not come through domination and control. Instead, we find strength through self-acceptance and equanimity. Celebrating our power helps us overcome our fears, a major theme of this card. We develop a healthy sense of ego by first meeting life’s challenges and then taking a moment to appreciate our newfound abilities. Reflect on a time you’ve been a bit bolder than you thought possible. Luxuriate in the feeling, regardless of the outcome. Savor yourself with the same shameless delight of a cat licking itself.
 
 An aura of gentleness, even playfulness, surrounds the pair shown on the card. The Figure and the Lion look relaxed because they both feel safely held within a relationship built on mutual respect. Where an archetype like The Magician marshals tools and declares their will, Strength gets things done through exercising soft power: deep listening, skillful negotiation, and reciprocity. These skills only seem like magic. In truth, they are strategies we can learn to make facing and resolving disagreements more manageable. Find good teachers.
 
-On a related note, this card might indicate that a relationship has undergone a rupture that now requires repairing. Strength says that we can make amends without denying the original harm or letting it continue unchecked. Revisit harms done to you or by you with fresh eyes and look for opportunities to restore balance. You may never get to hear the apology you deserve or make one that you long to deliver, and yet you must find a way to move forward.
+On a related note, this card might indicate that a relationship has undergone a rupture that now requires repairing. Strength says that we can make amends without denying the original harm or letting it continue unchecked. Revisit harms done to or by you with fresh eyes, and look for opportunities to restore balance. You may never get to hear the apology you deserve or make one that you long to deliver, yet you must find a way to move forward.
 
 Not that it’s going to be the walk in the park, never mind the meadow shown on the card. To take responsibility for how our most damaging impulses and fears show up in every aspect of our lives, we must first acknowledge their existence. Yikes! Accountability always takes moral courage and owning our vulnerabilities in a society built on exploitation requires real guts. Holding others accountable is equally tough, especially when we love them or when the behavior stems from addiction or mental health issues. Whichever side of the proverbial street you stand on, clean it up.
 
-Self-expression is tricky in a world built on oppression. We suppress aspects of ourselves because we learned, correctly or not, that expressing them leads to pain and danger. Strength asks us to reclaim the energy spent on repression to conquer shame and find communities where we shine most brilliantly. Where does authenticity feel sticky to you? Resist the urge to start yet another self-improvement project or rush to solve this problem via external means. Allow yourself to feel the spaciousness and grace that come by frankly acknowledging the truth.
+Self-expression is tricky in a world built on oppression. We suppress aspects of ourselves because we learned, correctly or not, that expressing them leads to pain and danger. Strength asks us to reclaim the energy spent on repression to conquer shame and find communities where we shine most brilliantly. Where does authenticity feel sticky to you? Resist the urge to start yet another self-improvement project or rush to solve this problem via external means. Allow yourself a moment to feel the spaciousness and grace that come by frankly acknowledging the truth.
 
-Finally, notice that the Figure approaches the Lion fearlessly. Their relationship has a caring vibe. The Strength card reminds us that we all have an expressive power within us that exists beyond the reach of shame or self-deception. Strength in this light looks like someone who has faced their fears with compassion and found a deep well of self-acceptance to draw from as they face the world.
+Finally, notice that the Figure approaches the Lion fearlessly. They have befriended their inner-Lion, integrating its seemingly frightening qualities into their conscious self. This card reminds us that we too have a place inside us beyond the reach of shame or self-deception, and great power waits to meet us there when we're ready. Strength's holding the Lion's jaws represents someone who has made this journey and has returned transformed.
 
 ## SHADOW ASPECTS
 
