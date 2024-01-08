@@ -55,34 +55,27 @@ It takes about three minutes to master the basics of reading the cards: form a q
 
 ### SET THE SCENE
 
-First, you don’t need a tricked-out altar to read tarot. We adore the aesthetics as much as the next witch, but the magic comes from centering yourself. If incense and candles get you there, go for it! But never believe that your intuitive practices require them.
+First, you don’t need a tricked-out altar to read tarot. We adore the aesthetics, of course, but the magic comes from centering yourself. If incense and candles get you there, go for it! But never believe that your intuitive practices require them.
 
-We discuss ritual openers in Part II and you may want to start a reading in a similar manner. Regardless, create a space that protects your concentration and that feels sacred to you whether you plan to pull a quick card or work through a ten-card spread.
+Nevertheless, you will want to create a space that protects your concentration and sets this time apart from quotidian life. Witches calls this opening or casting a circle, and Part II discusses these types of ritual openers in more detail. For now, simply saying "my circle is open" works. When your reading or ritual ends, close the circle with a similar phrase.
 
-A tarot spread refers to a predeterminded arrangement for pulling cards with accompanying labels to frame the meaning of that card. The Celtic Cross remains world-champion among spreads, with second place going to the humble Past-Present-Future three-card spread. They give us scaffolds for building our practice, not substitutes for our intuitions.
+A tarot spread is a predeterminded order for pulling and placing cards in an arrangement that highlights certain themes or relationships within the reading. Each combination of label or prompt with a position in the spread is called a placement, and it influences how we interpret that card. The Celtic Cross remains world-champion among spreads, with second place going to the humble Past-Present-Future three-card spread. Use them judiciously: they should serve as scaffolds for our practice, not as substitutes for our intuition.
 
 ### FORM A QUERY
 
-Whether or not you use a pre-defined spread, you need a well-articulated theme or query related to developing your potential and directing your power. Frame your query like you’re asking advice from a trusted friend, not a favor from a rich one.
+Whether or not you use spread, you need a well-articulated question to focus and direct your power. We call this central question or topic the query in tarot-speak and the effort you put into forming a good one will determine the quality of the answer you receive.
 
-A useful question sticks to a timeframe where you have the power to act, either the present or near future in most cases. Asking “Will I be a famous author?” before you even pick up a pencil won’t yield useful information. Too much work lies between you and the goal. Try, “What can I put energy into that would help me improve as a writer?” and go get your pencil sharpener! Good queries make plans, not promises, and the responsibility for realizing our potential always lies with us. Only one witch got to the ball in a pumpkin that we know of; the rest of us have to hoof it.
+Good queries ask for help in making plans or shaping processes, not for a promised outcome, because the responsibility for realizing our potential always lies with us. Only one witch got to the ball in a pumpkin that we know of; the rest of us have to hoof it.
 
-Lastly, don’t try to use tarot to read minds– it’s not healthy, and it won’t work anyway.
+A useful query sticks to a timeframe where you have the power to act, either the present or near future in most cases. Asking “Will I be a famous author?” before you even pick up a pencil won’t yield useful information. Too much work lies between you and the goal. Try, “What can I put energy into that would help me improve as a writer?” and then go get your pencil sharpener!
 
 ### PULL A CARD
 
-Tarot lore contains all manner of advice and prohibitions on handling cards. You will hear rules about how to shuffle and cut the deck, who may touch a deck, how to store the deck, the meaning of dropped cards or the special power of the bottom card, etc. Ditch anything that feels restrictive or diminishes your desire to get out your deck, and feel out what works for you. Not a very satisfying answer, we know.
+Tarot lore contains all manner of advice and prohibitions on handling cards. You will hear rules about how to shuffle and cut the deck, who may touch a deck, how to store the deck, the meaning of dropped cards or the special power of the bottom card, etc. We advise you to ditch anything that diminishes your desire to get out the cards. Don't "follow rules"-- set sacred boundaries around your witchcraft to protect and uplift its power. Folks outside the circle may not be able to distinguish your boundary from a rule, but the vibe inside the circle feels very different.
 
-Okay, fine. Here are common "rules" we do and do not observe:
+That said, you would do well to observe a few common practices. First, you must shuffle the deck thoroughly between readings. Divide the deck into three approximately equal stacks ("cut the deck"), then re-join the deck by picking the stacks back up in a different order than you laid them down. Then take cards one-by-one from the top, placing them down in the shape of the spread. If pulling cards as part of a freewheeling reflection without a spread, repeat this process when you change topics. The cards need that touch of chaos to work their magic, so frequent and ecstatic shuffling is the only hard rule in our playbook.
 
-* we shuffle however we like, including the dreaded bridge method
-* we cut the deck into three piles with our left hands, then re-join them intuitively before pulling
-* when reading for someone else, we do not make them touch the deck but we let them if they ask
-* we do NOT share the decks we use for readings (aka "working decks") or use someone else's deck
-* we own many (and yet somehow not enough) decks as artworks, or to support their creators; we let people touch those ones
-* we store our decks thoughtfully, in somewhat beautiful arrangements; we neither conceal them nor make elaborate displays
-
-We use libraries and community bikes, ride public transit, and bully houseguests into sleeping in our bed rather than the couch-- logically, we should share decks! Yet just as no amount of swapping spit would ever convince us to share a toothbrush with a lover, we simply cannot do it.
+Well, we have one more rule: don't touch our cards! Decks collected as artwork or to support their creators ought to be shown off, but the deck we use in readings (our "working deck") belong in our hands and no others. We use libraries and community bikes, ride public transit, and bully houseguests into sleeping in our bed rather than on the couch-- logically, we should share decks! Yet just as no amount of swapping spit would ever convince us to share a toothbrush with a lover, we simply cannot do it.
 
 You totally should, though.
 
@@ -94,15 +87,13 @@ We adhere to a mythopoetic style of reading tarot that draws from folklore and m
 
 This school of thought means that even the most cheerful or sexy archetype has a shadow, a term that describes the less obvious and usually more destructive expressions of its energies. Even a card like the Four of Wands that shows happy people on a sunny day carries warnings: over-reliance on escapist coping mechanisms ("it's not a party if it happens every night"), unhelpful peer pressure, or perhaps conflict-avoidance. Following the same principle, every card has an empowering aspect. For instance, The Devil urges us to let the liberatory power of passion move us beyond the reach of shame, letting us live more authentically.
 
-For this reason, we don't read reversals. Rather, we let the placement tell us which facet of the archetype to consider. A placement (i.e. the position in a spread) that signifies "a supportive energy to increase in my life" suggests the so-called upright meanings, whereas "an obstacle to overcome" points us toward the shadow. Or read reversals! Many folks do, and most modern guide books will give reversed or shadow meanings.
-
-#### HARD CARDS
+For this reason, we don't read reversals. Rather, we let the placement tell us which facet of the archetype to consider. A placement that signifies "a supportive energy to increase in my life" suggests the so-called upright meanings, whereas "an obstacle to overcome" points us toward the shadow. Or read reversals! Many folks do, and most modern guide books will give reversed or shadow meanings.
 
 You will inevitably pull cards with disturbing imagery and intimidating descriptions (what folks call “hard cards”) in placements that really shake you. We firmly believe (and have personally experienced) that every card offers wise counsel in its way. Think of cards that upset you as bitter medicine: truths that hurt to swallow yet still may heal you. Pulling The Devil may indeed signal its negative meanings (compulsivity, codependence), but which would you prefer to see: a check-engine light or smoke coming from the hood? A strong reading draws our attention to the path we’re walking, but it doesn’t control our steps. A card or spread that bother you means that it’s time to find a fork in the road, not lay down in the middle of it.
 
-## WORKING IN THE OPEN CIRCLE
+Lastly, don’t try to use tarot to read minds– it’s not healthy, and it won’t work anyway.
 
-* just explain casting a circle
+## WORKING IN THE OPEN CIRCLE
 
 If you’ve opened a circle with others, then you have likely encountered a version of a classic closing phrase: the circle is open yet unbroken. It means that although our time in a ritual space necessarily ends and we return to “normal life”, we remain connected in a larger universal circle that encompasses all beings. How we act toward and speak to one another and our moral obligations to the more-than-human world stay within this sacred space.
 
