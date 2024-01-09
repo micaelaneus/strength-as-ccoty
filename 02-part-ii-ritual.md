@@ -36,7 +36,7 @@ While you do not need an altar at home, you may very much enjoy one. Dedicate an
 
 You may find pleasure in honoring or calling in people who incarnate an aspect of the Strength archetype to you. Hero-worship is very shadow-Magician in our minds, but we love to celebrate someone who embodies the sunny side of humanity. Try adding their image to your altar, playing their music while you journal, or eating their favorite foods. Maybe skip smoking their favorite cigarette? Everything that serves life is fair game.
 
-## NATURAL ALTARS
+## LANDSCAPES
 
 You belong to the Earth and every atom sings for you. We long to worship your ineffable wonderfulness at the tops of mountains and crests of high tides. Please go someplace that puts you deeply in touch with your power as one of this planet’s most favored children and we promise to meet you there. (Or at least send a worthy representative to honor you in our stead.) May we suggest a meadow blooming after a flood, a forest regrowing after a wildfire, or a pigeon nesting in the plastic anti-pigeon spikes?
 
