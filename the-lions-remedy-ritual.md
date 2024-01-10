@@ -14,20 +14,10 @@ MATERIALS
 
 ## OPEN A RITUAL SPACE
 
-Take some breaths to build focus, calm the mind, and signal to your body that you are entering a different state of being. Sit quietly until you feel centered before continuing.
-
-_____
-MOVE TO RITUAL OPENER SECTION IN PART II: RITUAL STRATEGIES
-WRITE A SHORT VERSION HERE
-
-Mark the transition into the ritual space by lighting a candle, invoking stone and plant allies, burning incense, or doing other ritual strategies. These elements help create a boundary between the ordinary and the sacred, setting this work apart from other day-to-day activities. You do not need any of them, however. Deep breaths and strong intentions work magic all by themselves. If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
-
-Optional: call in any guides, ancestors, or other helpers. Invite them by name and tell them why you seek their presence. Since we are working with Strength, you might call in people who embody its themes. Example: “Grandma Jo, you dared to leave your husband despite society’s pressure to stay. Share your courage with me today.”
+Take some breaths to build focus, calm the mind, and signal to your body that you are entering a different state of being. Sit quietly until you feel centered before continuing. If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
 
 Announce your reason for performing the ritual and dedicate the merits:
 *“I gather here to* [your purpose or a general desire], *and I dedicate any merits of my work to the highest good of all beings* [or name a recipient].”
-
-_____
 
 Prepare your tarot cards and other materials, especially the scrap papers for the releasing ritual. When you're ready, take a comfortable seat and go through the following visualization.
 
@@ -69,8 +59,6 @@ Wipe the Lion’s spit off your new totem. You’re bringing this home with you,
 
 Now that you’ve cleaned out your bag, you find the enchanted Lion's Remedy fits perfectly, and carrying it is no trouble. Content with your adventure, you pause for a moment to soak in the delicious power of the meadow before heading back toward the mountain to home.
 
-* is this a good enough ending???
-
 ## REFLECTION
 
 Journal a bit more:
@@ -89,7 +77,7 @@ Taking all these ideas into consideration, set an intention for the next few mon
 
 When your reflection feels complete, close your circle according to your practice or simply say something like:
 
-*“May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all. So concludes my ritual.”*
+“May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all. So concludes my ritual.”
 
 ## THE LION’S REMEDY IN THE OPEN CIRCLE
 

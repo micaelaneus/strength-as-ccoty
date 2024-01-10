@@ -1,9 +1,5 @@
 # PART III: ASTROLOGY
 
-## TRANSITION TO PUT AT THE END OF THE PREVIOUS SECTION
-
-Good idea on how to connect with the archetype, we can personalize how we work with Strength by adding astrology. Make sure you have your natal chart handy.
-
 ## THE REAL BEGINNING
 
 The stars do not map out our lives; they only show us the edges of our comfort zones. Astrology should put us in touch with our limits and motivate us to test them, joyfully and compassionately, as acts of cosmic self-love. We envision your life as a luminous jewel spinning in space, every facet a wonder to behold, and hope this work inspires you to go star-gazing with us.
@@ -86,11 +82,11 @@ Leo brings the element of Fire to Strength, tying this card to the Suit of Wands
 
 Three of the twelve astrological signs have the element of Fire, each in one of the three modalities (Cardinal, Fixed, or Mutable). Modalities add nuance to how that element operates in that sign. Leo’s Fire is Fixed, meaning the most mature and stabilizing expression of its influence. It beats out a steady rhythm for Strength to play over, making this year's endeavors notable for their durability and trustworthiness. Fixed Fire’s shadow qualities relate to excessive inertia, making us slow to evolve or compromise when needed.
 
-## STRENGTH IN YOUR NATAL SKY
+## JOURNAL: STRENGTH IN YOUR NATAL SKY
 
-Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You’ll need your natal chart, which many online sources will calculate for free (see Resources and References). 
+Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You’ll need your natal chart, which many online sources will calculate for free (see Resources and References).
 
-Once you have it, note the signs and planets for: 
+Once you have it, note the signs and planets for:
 
 1. the house ruled by Leo
 2. the house hosting your Sun
@@ -106,6 +102,22 @@ HOUSE - SIGN - ELEMENT - MODALITY - PLANETS
   * FIFTH - blank - blank - blank - blank
   * EIGHTH - blank - blank - blank - blank
 
-Each of these houses relates to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible placement in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. When you get a sense of the house meanings, take inventory of those aspects of your life both externally (as they manifest to others) or internally (as beliefs, shadows, or self-talk patterns). Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another, intuitively. 
+Each of these houses relates to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible combination in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another to illuminate a core theme or field of interest.
 
-* to help you, we have the following exercise (EVER STRONGER STRENGTHS)
+![Astro Venn Diagram (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38c00b8b-303d-44c1-b7e3-a27858ef2434)
+
+Complete the following prompts for each of the combinations you listed in the table above, even your empty houses. But remember, this isn't a social studies test! Focus on the meanings that matter most to you rather than on getting the astrological definitions correct (whatever that is).
+
+1. Look up the common associations for this house and write out its themes in your own words.
+2. What astrological sign rules this house in your chart? Which of the sign’s themes resonate with you currently, or seem likely to take precedence soon?
+3. Which planetary bodies occupy this house, and what do they signify?
+4. Consider how your answers to the previous prompts intersect, and how they influence one another's expression. What themes, light or shadow, draw your attention? Trust that tickle of curiosity.
+5. How do you manifest or explore those themes into your life, as practically as possible? Challenge yourself to find three ways to develop each of your most fascinating house-sign-planet combinations.
+
+## Example: VENUS IN LEO IN THE EIGHTH HOUSE
+
+Someone with Venus in their Eighth House (Transformations) should check in with their romantic life– history, current status, ideas about love, attachment style, the evolution of their sexual and gender identity, etc. They might see very literal changes to make such as starting to date again or making some requests in the bedroom. More abstractly, they could focus on healing attachment issues.
+
+A secondary area to explore is aesthetics, generally. This house encourages Venus-in-Leo to revamp their image (wardrobe, social media presence, etc.), refresh their home decor, or simply spend more time this year appreciating the arts. Fixed Fire inspires them to get an annual membership to the city ballet company.
+
+To put the power of this placement into action, they decide to clean out their closet and meet all first dates at galleries or live performances rather than a bar or coffee shop. Every Friday (Venus's day), they fill a vase with fresh flowers and branches to brighten up their bedroom.

@@ -4,7 +4,6 @@ Zodiac spreads take us on a journey from our innermost selves in the First House
 
 ![TAROT_ The Twelve Houses Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/9c6b1f36-c5d5-444d-b9f5-dd669d59a1c9)
 
-
 ## BEFORE YOU BEGIN
 
 This spread is complex, not gonna lie. Reading it gets both easier and richer the more you understand astrology and your natal chart, and puzzling through this spread is one way to build that expertise. Hang in there.
@@ -83,6 +82,7 @@ Dividing the sky into twelve parts creates a symmetry to explore for even more i
 * Cadent Houses (3, 6, 9, 12) imply fluidity. Here, we benefit from adaptivity and cooperation.
 
 ### THE ANGLES
+
 We indicated where the Ascendant, Descendant, Imum Coeli (IC), and Medium Coeli (MC) sit in the spread because they too carry unique significance that may enhance your reading:
 
 * Ascendant reflects your point of view, whether conscious or unconscious.
