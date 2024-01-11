@@ -26,7 +26,7 @@ The vibrant foliage adorning the Figure’s waist and crown exudes joy and boldl
 
 ### THE LEMNISCATE AKA INFINITY SYMBOL
 
-This well-known icon floating above the Figure’s head connects them to the ethereal, offering a point of balance to the otherwise lusty fleshiness of this card. A lemniscate loops endlessly over and around itself, suggesting an active energy that nevertheless stays in harmony with the greater universe. Its presence here reminds us that although Strength primarily relates to our personal power, we must stay in alignment to fully realize the lessons of this key.
+This well-known icon floating above the Figure’s head connects them to the ethereal, offering a point of balance to the otherwise lusty fleshiness of this card. A lemniscate loops over and around itself, an endlessly active energy yet one that stays in harmony with the greater universe. Its presence here reminds us that although Strength primarily relates to our personal power, we must stay in alignment to fully realize the lessons of this key.
 
 ### THE WHITE ROBE
 
