@@ -1,6 +1,5 @@
 # TAROT: The Lemniscate Spread
 
-
 ![TAROT_ The Lemniscate Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/4f373bc6-16a5-46e3-8cb0-d5c5b08f222b)
 
 ## READING THE SPREAD

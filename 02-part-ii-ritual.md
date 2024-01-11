@@ -1,14 +1,12 @@
 # PART II: Ritual
 
-Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals or to sanctify the nitty-gritty work of living. All reasons are good reasons. Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
-
-## SHAPING A SACRED SPACE
+Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals or to sanctify the nitty-gritty work of living. All reasons are good reasons.
 
 * short rituals are also awesome! don't make everything a big whopping deal
 
 Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
 
-### OPENING & CLOSING THE CIRCLE
+## SHAPING SACRED SPACE
 
 Mark the transition into the ritual space by lighting a candle, invoking stone and plant allies, burning incense, or doing other ritual strategies. These elements help create a boundary between the ordinary and the sacred, setting this work apart from other day-to-day activities. You do not need any of them, however. Deep breaths and strong intentions work magic all by themselves. If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
 
@@ -28,7 +26,7 @@ When your reflection feels complete, close your circle according to your practic
 
 ## RITUAL ELEMENTS & STRATEGIES
 
-Now let's look at ritual elements and activities to work with Strength. Anything you love or feel called to works, these are just themes for Strength in particular. 
+Now let's look at ritual elements and activities to work with Strength. Anything you love or feel called to works, these are just themes for Strength in particular.
 
 Beware bad vibes! Choose only ethically sourced herbs and stones, work within your cultural tradition, and shop locally. Don’t taint your magic with settler-colonial ick, especially in a year ruled by an amplifying archetype like Strength. When in doubt, leave it out… of your online shopping cart.
 
