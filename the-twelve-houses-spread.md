@@ -101,4 +101,4 @@ Astrologers offer one further–and simpler!– grouping to consider, the opposi
 * Spark and Bellows (Houses 5 and 11) illuminate your creative spark and who/what fans its flames.
 * Body and Soul (Houses 6 and 12) unite your embodied self and inner realms.
 
-Calling these houses opposing implies antagonism and contradiction; we prefer to call them *complementing*. They’re more dynamic duo than arch-enemies and hey, sometimes couples fight! That doesn’t mean they don’t love you. 
+Calling these houses opposing implies antagonism and contradiction; we prefer to call them *complementing*. They’re more dynamic duo than arch-enemies and hey, sometimes couples fight! That doesn’t mean they don’t love you.

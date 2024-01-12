@@ -14,10 +14,10 @@ MATERIALS
 
 ## OPEN A RITUAL SPACE
 
-Take some breaths to build focus, calm the mind, and signal to your body that you are entering a different state of being. Sit quietly until you feel centered before continuing. If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
+Take some breaths to build focus, calm the mind, and signal to your body that you are entering a different state of being. Sit quietly until you feel centered before continuing. If you have a method for casting a circle in your practice, perform it here.
 
 Announce your reason for performing the ritual and dedicate the merits:
-*“I gather here to* [your purpose or a general desire], *and I dedicate any merits of my work to the highest good of all beings* [or name a recipient].”
+“I gather here to [your purpose or a general desire], and I dedicate any merits of my work to the highest good of all beings [or name a recipient].”
 
 Prepare your tarot cards and other materials, especially the scrap papers for the releasing ritual. When you're ready, take a comfortable seat and go through the following visualization.
 
@@ -59,9 +59,9 @@ Wipe the Lion’s spit off your new totem. You’re bringing this home with you,
 
 Now that you’ve cleaned out your bag, you find the enchanted Lion's Remedy fits perfectly, and carrying it is no trouble. Content with your adventure, you pause for a moment to soak in the delicious power of the meadow before heading back toward the mountain to home.
 
-## REFLECTION
+## CLOSE THE RITUAL SPACE
 
-Journal a bit more:
+Reflect on your journey to the meadow:
 
 * Tell us more about what you called in when you reached the meadow.
 * Consider what meanings and associations the Lion’s Remedy token evokes in your imagination. Why did you find this object, as opposed to some other?
@@ -73,8 +73,6 @@ Taking all these ideas into consideration, set an intention for the next few mon
 
 *“I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.”* Bingo!
 
-## CLOSE THE RITUAL SPACE
-
 When your reflection feels complete, close your circle according to your practice or simply say something like:
 
 “May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all. So concludes my ritual.”
@@ -84,5 +82,5 @@ When your reflection feels complete, close your circle according to your practic
 We have three ideas for extending this ritual into everyday life. Choose one or more that match your style, or create your own:
 
 * For the next eight days, read or speak your intention aloud to yourself as you perform an everyday act of self-care. Stick a piece of paper with your intention written on it between the bristles of your hairbrush to remind yourself to recite it into the mirror as you brush your hair. Enchant your lip gloss, moisturizer, or inhaler– anything you use at least once per day and relates to self-care that will remind you to recite your intention.
-* Keep a tangible incarnation of your Lion’s Remedy totem near you for the next eight days, or the duration of your intention. Translate more fantastical totems that don’t fit in your pocket into an everyday item that loosely correlates. A hot air balloon might turn into a heater or bolt cutters into kitchen shears.
+* Keep a tangible incarnation of your Lion’s Remedy totem near you for the next eight days or the duration of your intention. Translate more fantastical totems that don’t fit in your pocket into an everyday item that loosely correlates. A hot air balloon might turn into a heater or bolt cutters into kitchen shears.
 * Want your magic to last? Solidarity is forever! Take time to support a collective effort related to the fears and obstacles you banished with the Lion’s Remedy. For instance, someone who cleansed a bad relationship might volunteer at (or donate to) a local shelter for domestic abuse survivors. Feel like your job or living situation is a prison? Help others escape incarceration by contributing to the National Bail-Out. Picking up litter would work for any issue— bless some work gloves with your intention and fill a bag at your local beach or park.

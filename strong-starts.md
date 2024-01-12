@@ -6,7 +6,7 @@ Now that we understand the core characteristics of this year's collective card, 
 
 Fears, anxieties, and foreseeable challenges; practicalities inherent in modern life; things worth trusting, risks worth taking.
 
-List out anticipated changes to your living situations, career, skillset, or other aspect of adult life. Note down major preoccupations or worries along with any work to be done (finish a thesis, repair your roof, new garden). 
+List out anticipated changes to your living situations, career, skillset, or other aspect of adult life. Note down major preoccupations or worries along with any work to be done (finish a thesis, repair your roof, new garden).
 
 1. Developing a healthy relationship with the Lion is the main task faced by Strength. How will you nurture a loving relationship with whatever feels lion-y in your life?
 2. Can you make each place you spend significant amounts of time in more comfortable and restorative for your body?

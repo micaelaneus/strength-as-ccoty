@@ -24,15 +24,11 @@ Never, ever pressure anyone to join or agree to an action. Commitment is key, an
 
 At some point every day, preferably in the morning, recite the name of every non-human creature you know in a 20-mile radius, whether animal, plant, fungal, geological, microbial, etc. Stellar jay, coyote, lodgepole pine, Yuba River, hummingbird moth, manzanita, granite… locate yourself in the ecological community and marvel at your place in an incomprehensibly vast web of relationships. Gather these neighbors into a council and turn to them when it’s time to make decisions. What does it look like to take a crow’s advice?
 
-Writer Sophie Strand created this simple but powerful ritual and shared it publicly. We put a link to one of her pieces about this practice in Resources & References.
-
-* maybe put the link in situ??
+Writer Sophie Strand created this simple but powerful ritual and shares publically for our use. See Resources & References for a link.
 
 ## RE-ENCHANT YOUR LIFE
 
 In the past, people worked with beautiful tools built to honor and inspire those who used them. Industrial capitalism took that away, robbing daily life of some of its splendor. Take it back by re-framing the mundane or sanctifying your tools.
-
-* why this is important-- keep limber imaginations
 
 * Write your to-do list poetically. Don’t go to the dentist— get your seashells polished.
 * Turn your morning mug into a sacred vessel. Fill it with stone and plant allies that attract the power you want to infuse into your life and leave it under a full moon.

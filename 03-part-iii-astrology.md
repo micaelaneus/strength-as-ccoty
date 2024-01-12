@@ -1,43 +1,54 @@
 # PART III: ASTROLOGY
 
-## THE REAL BEGINNING
-
 The stars do not map out our lives; they only show us the edges of our comfort zones. Astrology should put us in touch with our limits and motivate us to test them, joyfully and compassionately, as acts of cosmic self-love. We envision your life as a luminous jewel spinning in space, every facet a wonder to behold, and hope this work inspires you to go star-gazing with us.
 
-### OUR APPROACH
+As with tarot and ritual, many approaches to astrology exist and we again align ourselves with the mythopoetic and ecology-based schools of thought. Our use of natal charts and annual transits emphasizes potentialities over predictions, and we see the zodiac as another source of archetypal inspiration.
 
-* there are many approaches
-* we are Tropical and Western
-* we use Whole Sign Placements
-* we have an ecological approach that emphasizes potentialities over predictions
-* see some resources & references
+We don’t believe in “bad” astrological placements any more than we believe in bad cards. Everything we observe in the cards or the sky shows us how to grow wiser and stronger even when they point out areas to improve. You may or may not like what you see in your chart; either way, you'll know where to focus your intentions in the coming year.
 
-We don’t believe in “bad” astrological placements any more than we believe in bad cards. Everything we observe in the cards or the sky shows us how to grow wiser and stronger even when they point out areas to improve. You may or may not like what you see in your chart; either way, you'll know where to focus your intentions in the coming year. It's a chance to evaluate your strengths and grow even stronger.
+More technically, this guidebook uses Tropical (aka Western) astrology with Whole Sign Placements to calculate natal charts. We went with Whole Signs rather than the more common method, Placidus, because the charts look less intimidating. A simpler chart makes introducing the zodiac into your tarot practice more inviting, in our opinion, and other methods of determining houses do not conflict with our material as far as we see.
+
+The most archaic roots of astrology remain buried and a teensy bit tangled in the archeological record, to put it mildly. Yet the research clearly shows that ancient astrologers connect the stars to the seasons and used their observations to advise their communities in the practical matters of life. They inhabited a living planet surrounded and sustained by awe-inspiring forces, not a resource-rich but ultimately insensate rock described in Western thought. Astrology translated this ethereal understanding into actionable information in th
+
+Astrological storytelling was one of many tools they used to make choices in uncertain times shaped by incomprehensible forces, not unlike we do today. They wanted people to feel less afraid, more awe-struck, and we humbly place ourselves in this lineage.
+
+## UNDERSTANDING PLACEMENTS
+
+At the heart of every astrological interpretition lies the idea of placement: the confluence of a planet, a zodiac sign, and a house that create a unit of meaning. When someone says "I'm a Scorpio Rising", they mean that the Sun was in the sign of Scorpio in the First House (the one "rising" on the horizon) at the moment of their birth. Folks generally use that pattern to talk about placements: a planet in a sign in a house.
+
+Placements provide the basis for most of the ways we interpret charts and transits, the two categories of astrological readings. Charts describe the position of the sky at a moment in time, like a snapshot, whereas transits refer to movements (animated gifs) like a planet moving between houses.
+
+The well of astrological knowledge runs deep, and we have space for about a sippy-cup amount here. See Resources & References for more.
+
+### THE PLANETS
+
+In astrology, planets refers to all orbiting bodies including the Moon and several prominent asteroids, not only the ones My Very Educated Mother taught us. They represent instinctual urges and subconscious motivations, the essential energies that animate our lives. Venus corresponds to sexual and romantic desires, for instance, and so its placement in your natal chart hints at how you express yourself in matters of the heart and, sometimes, crotch.
+
+We do sort them into subgroups, however. 
+
+You may choose which groups to incorporate when analyzing your natal placements later in this section.
 
 #### THE SIGNS
 
-* they have a system, starts in March, reflecs seasons not constellations per se
-* why do signs matter, in the sense of how do they add meaning
+The zodiac refers to the movement of the Sun through the sky over the course of a year, divided into twelve portions called signs. Each sign conveys an aura or mood that colors how elements under it express themselves. Someone with Venus-in-Leo may favor passion and come on strong, where someone with Venus-in-Virgo might see emptying the dishwasher as foreplay (You'll understand when you're older.)
+
+Signs of the zodiac follow a predetermined order that begins and ends the equinox in March, with the sign of Aries, and change after approximately thirty days. This duration has nothing to do with lunar months (about 28 days), although they often fit together nicely because of their similar cycle lengths. A full moon happens in the sign opposing the season, e.g. Capricorn season has a full moon in Cancer.
+
+Notice that Aries happens in the Northern Hemisphere spring, when caring for flocks would require labor, and has the ram as its symbol The procession of signs fits more closely with seasons on Earth than to constellations overhead or months in the Gregorian calendar. All traditional time-keeping systems seem to originate in astrology, and they all predate the modern Gregorian system by at least two thousand years.
 
 #### THE HOUSES
 
-* what are they? sections of the sky
-* why do houses matter, in the sense of how do they add meaning
+The twelve sections of sky that make the zodiac also form twelve houses, each linked to a core areas of life experiences like families or career. The planet and sign give us hint about what energies will come our way, and the house tells us where to expect them to land. Houses have fuzzy edges, however. Working out their boundaries for yourself works better than any dogmatic definition, and the Twelve Houses Spread has our take on them to get you started.
 
-A house devoid of any planetary bodies does not foretell doom or deprivation in that area of your life. So-called "empty houses" signify that you have less struggle or drama in that area, which means those topics will not provide you the most motivation for growth. An empty house does not guarantee that you will never face difficulty, of course, only that your thorniest challenges lie elsewhere in the chart.
-
-#### THE PLANETS
-
-* why do planets matter
+A house devoid of any planetary bodies does not foretell doom or deprivation in that area of your life. So-called "empty houses" signify that you have less struggle or drama in that area, or you find those topics less motivating, but they do not say why. Same goes for stelliums, crowds of four or more planets in a single house. Maybe a party, maybe a brawl! You need to first get more information and then, as always, do the work either to disperse a riot or start a disco according to your desire.
 
 #### ELEMENTS & MODALITIES
 
-* why do elements and modalities matter
+Signs have associated alchemical elements: Fire, Water, Earth, and Air. Every element pertains to three of the twelve astrological signs, each in one of the three modalities (Cardinal, Fixed, or Mutable). Modalities add nuance to how that element operates in that sign, not unlike how a sign influences the expression of a planet.
 
 #### POLARITY
 
-* what are they
-* why don't you use polarities (generally not into binaries, not finding them useful)
+We do not use polarities because haven't found a binary that provides insight not accessible by the other tools. We mention them because you will see versions mentioned in astrological sources: masculine-feminine, yin-yang, light-dark, active-passive, positive-negative, etc. Our exercises and spreads do not include them, but you could easily add them to your interpretation.
 
 ## CORRESPONDENCES OF THE ARCHETYPE
 
@@ -80,7 +91,7 @@ house of creativities but that's not quite right)
 
 Leo brings the element of Fire to Strength, tying this card to the Suit of Wands. Fire and Wands share a vigorous energy associated with intuition, craftsmanship, and grassroots political action. Our instinct to challenge ourselves to grow creatively or to break destructive patterns gets a boost from their cooperative energies. Unfortunately, sparks start wildfires when left unchecked. Watch out for ambition for its own sake, snark, and a certain impulsive selfishness.
 
-Three of the twelve astrological signs have the element of Fire, each in one of the three modalities (Cardinal, Fixed, or Mutable). Modalities add nuance to how that element operates in that sign. Leo’s Fire is Fixed, meaning the most mature and stabilizing expression of its influence. It beats out a steady rhythm for Strength to play over, making this year's endeavors notable for their durability and trustworthiness. Fixed Fire’s shadow qualities relate to excessive inertia, making us slow to evolve or compromise when needed.
+Leo’s Fire is Fixed, meaning the most mature and stabilizing expression of its influence. It beats out a steady rhythm for Strength to play over, making this year's endeavors notable for their durability and trustworthiness. Fixed Fire’s shadow qualities relate to excessive inertia, making us slow to evolve or compromise when needed.
 
 ## JOURNAL: STRENGTH IN YOUR NATAL SKY
 
@@ -102,7 +113,7 @@ HOUSE - SIGN - ELEMENT - MODALITY - PLANETS
   * FIFTH - blank - blank - blank - blank
   * EIGHTH - blank - blank - blank - blank
 
-Each of these houses relates to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible combination in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another to illuminate a core theme or field of interest.
+Each of these houses connects to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible combination in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another to illuminate a core theme or field of interest.
 
 ![Astro Venn Diagram (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38c00b8b-303d-44c1-b7e3-a27858ef2434)
 
