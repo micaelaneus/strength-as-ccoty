@@ -18,15 +18,22 @@ At the heart of every astrological interpretition lies the idea of placement: th
 
 Placements provide the basis for most of the ways we interpret charts and transits, the two categories of astrological readings. Charts describe the position of the sky at a moment in time, like a snapshot, whereas transits refer to movements (animated gifs) like a planet moving between houses.
 
+Though we don't use them in this guidebook, every decent natal chart will show any aspects and patterns found in your sky. An aspect (trine, conjunction, quincunx, etc.) refers to the angle between placements, and a pattern (e.g., Grand Trine, Yod) refers to collections of aspects that generate larger placements. Think of them as meta-aspects, or placements-of-placements.
+
 The well of astrological knowledge runs deep, and we have space for about a sippy-cup amount here. See Resources & References for more.
 
 ### THE PLANETS
 
 In astrology, planets refers to all orbiting bodies including the Moon and several prominent asteroids, not only the ones My Very Educated Mother taught us. They represent instinctual urges and subconscious motivations, the essential energies that animate our lives. Venus corresponds to sexual and romantic desires, for instance, and so its placement in your natal chart hints at how you express yourself in matters of the heart and, sometimes, crotch.
 
-We do sort them into subgroups, however. 
+Astrologers sort the planets into a few common subgroups:
 
-You may choose which groups to incorporate when analyzing your natal placements later in this section.
+* The Personal Planets: Mercury, Venus, Mars, Jupiter, and Saturn
+* The Impersonal Planets: Uranus, Neptune, and Pluto
+* The Classical Planets: The Sun, Moon, and the Personal Planets
+* The Asteriods: Juno, Ceres, Pallas, Eros, and most notably, Chiron.
+
+We prefer to say Familial and Generational rather than Personal and Impersonal, but those names seem less common. You may choose which subgroups to incorporate when analyzing your natal placements later in this section. We recommend leaving asteroids other than Chiron out of your initial readings, for clarity.
 
 #### THE SIGNS
 
@@ -40,7 +47,7 @@ Notice that Aries happens in the Northern Hemisphere spring, when caring for flo
 
 The twelve sections of sky that make the zodiac also form twelve houses, each linked to a core areas of life experiences like families or career. The planet and sign give us hint about what energies will come our way, and the house tells us where to expect them to land. Houses have fuzzy edges, however. Working out their boundaries for yourself works better than any dogmatic definition, and the Twelve Houses Spread has our take on them to get you started.
 
-A house devoid of any planetary bodies does not foretell doom or deprivation in that area of your life. So-called "empty houses" signify that you have less struggle or drama in that area, or you find those topics less motivating, but they do not say why. Same goes for stelliums, crowds of four or more planets in a single house. Maybe a party, maybe a brawl! You need to first get more information and then, as always, do the work either to disperse a riot or start a disco according to your desire.
+A house devoid of any planetary bodies does not foretell doom or deprivation in that area of your life. So-called "empty houses" signify that you have less struggle or drama in that area, or you find those topics less motivating, but they do not say why. Same goes for stelliums, houses crowded with four or more planets, which may point to a party or a street brawl. Get more information by analyzing aspects and signs (for example) before picking out which shoes to wear.
 
 #### ELEMENTS & MODALITIES
 
@@ -72,26 +79,35 @@ This pairing rewards boldness but cautions against overreaching; egomania, worka
 
 ### HOUSES OF STRENGTH
 
-* you might work with both, or reading about them, you'll have an instinctive reaction to one that's important to you right now
+This archetype connects with two astrological houses, one from the zodiac and one from its position in the Major Arcana. Strength's association with ruler links it to that sign's home in the Fifth House, and its card number brings us to the Eighth House. Think of them as our collective houses for the year. We talk about working with Strength in relation to your unique natal chart in the next section.
 
-#### THE FIFTH HOUSE OF EXPRESSION
+#### THE FIFTH HOUSE OF CREATIVITIES
 
-* Leo's natural house is the fifth house, house of Expression (currently, I call it the
-house of creativities but that's not quite right)
-* meaning
-* areas of life covered
+Astrology gives us an expansive definition of creativity: art-making, child-rearing, sexual expression, public presentation as in fashion, and our entertainment choices all belong to the Fifth House. An instinct for playfulness and imagination drives us to make new things and share them, regardless of how we might categorize the resulting products. These activities draw us into relationships, even one-sided or conceptual ones like parasocial bonds with influencers, which may challenge our self-image. Keep an open mind this year and your Fifth House placements tell you how to unlock your most joyfully chaotic inner wisdom.
+
+This house invites us to do a comprehensive performance review of how well our creativity works for us:
+
+* do our romantic relationships let us play with our sexuality and gender expression?
+* how well does our public persona mask our inner selves? Maybe too well, or have we crossed into TMI territory?
+* what do we make with our labor, why, and how do we feel? Career misalignments and critical voices might pinch us.
+* who gets into our hearts and/or under our skin? What effects does their presence have on our psychic well-being?
+* we all do childcare, if only by our influence on the future: how are your parenting skills?
 
 #### THE EIGHTH HOUSE OF TRANSFORMATIONS
 
-* we include the eighth house is associated with the Strength archetype due to its placement in the Major Arcana
-* meaning
-* areas of life covered
+Two words dominate all discussions of the Eight House: sex and death! The grave and the orgasm seem like opposing energies, yet they both take us out of our individuated selves to unite us with the unknown. Each entails a grand dissolution that leads to a period of regeneration, and makes us weep. They make an obvious existential match.
+
+More than literal erotic encounters or real deaths, this house directs our attention toward the borders, thresholds, and liminal spaces in our lives. Financial transactions like paying taxes and receiving inheritances belong to this house because they shift control or ownership of resource between entities, transforming how it operates. Negotiations, collective projects, and investments share this slippery quality and likewise belong to the Fifth House. Therapeutic practices from psychiatry to massage and tantric sex belong here as well-- anything that intends to transform our bodies, minds, or partnerships.
+
+To work with the Eighth House, think like a mouse. Look along the edges of your life, scanning for places where outside energies squeeze into your thoughts and start to nibble at your peace of mind. Clarify points of exchange: job contracts, housework, affective labor, booty calls.
+
+Disordered attachments like stalking, obsessive-compulsive behaviors, engulfing rage, or revenge fantasies live in the basement of this house. Behaviors or thought-patterns that ought to evolve naturally stick and reverberate, shaking us apart like an earthquake. Find ways to remedy these issues by releasing the energy in healthy ways, and get help. 
 
 ### FIRE & THE SUIT OF WANDS
 
 Leo brings the element of Fire to Strength, tying this card to the Suit of Wands. Fire and Wands share a vigorous energy associated with intuition, craftsmanship, and grassroots political action. Our instinct to challenge ourselves to grow creatively or to break destructive patterns gets a boost from their cooperative energies. Unfortunately, sparks start wildfires when left unchecked. Watch out for ambition for its own sake, snark, and a certain impulsive selfishness.
 
-Leo’s Fire is Fixed, meaning the most mature and stabilizing expression of its influence. It beats out a steady rhythm for Strength to play over, making this year's endeavors notable for their durability and trustworthiness. Fixed Fire’s shadow qualities relate to excessive inertia, making us slow to evolve or compromise when needed.
+Leo’s Fire is Fixed, the most mature and stabilizing modality. It beats out a steady rhythm for Strength to play over, making this year's endeavors notable for their durability and trustworthiness. Fixed Fire’s shadow qualities relate to excessive inertia, making us slow to evolve or compromise when needed.
 
 ## JOURNAL: STRENGTH IN YOUR NATAL SKY
 
