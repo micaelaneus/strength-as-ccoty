@@ -84,3 +84,7 @@ We have three ideas for extending this ritual into everyday life. Choose one or 
 * For the next eight days, read or speak your intention aloud to yourself as you perform an everyday act of self-care. Stick a piece of paper with your intention written on it between the bristles of your hairbrush to remind yourself to recite it into the mirror as you brush your hair. Enchant your lip gloss, moisturizer, or inhaler– anything you use at least once per day and relates to self-care that will remind you to recite your intention.
 * Keep a tangible incarnation of your Lion’s Remedy totem near you for the next eight days or the duration of your intention. Translate more fantastical totems that don’t fit in your pocket into an everyday item that loosely correlates. A hot air balloon might turn into a heater or bolt cutters into kitchen shears.
 * Want your magic to last? Solidarity is forever! Take time to support a collective effort related to the fears and obstacles you banished with the Lion’s Remedy. For instance, someone who cleansed a bad relationship might volunteer at (or donate to) a local shelter for domestic abuse survivors. Feel like your job or living situation is a prison? Help others escape incarceration by contributing to the National Bail-Out. Picking up litter would work for any issue— bless some work gloves with your intention and fill a bag at your local beach or park.
+
+## TRANSITION 
+
+Good idea on how to connect with the archetype, we can personalize how we work with Strength by adding astrology. Make sure you have your natal chart handy.

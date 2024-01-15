@@ -12,7 +12,7 @@ Pull two cards to establish how Strength (Card 1) and your COTY (Card 2) see you
 
 The next pair reveals existing energy or expertise related to the themes of Strength (Card 3) and your COTY (Card 4) that you bring to the situation. This pairing hints at how you might get these archetypes to team up to help you in times ahead. 
 
-The second set shows contradicting desires, characteristics, or patterns of Strength (Card 6) and COTY (Card 7). They may clash or confuse one another. These placements reveal prospective tensions.
+The second set shows contradicting desires, characteristics, or patterns of Strength (Card 5) and COTY (Card 6). They may clash or confuse one another. These placements reveal prospective tensions.
 
 The final pair points to one of Strength’s themes that either balances or encourages an aspect of your COTY (Card 7) and a COTY card theme that does the same for Strength (Card 8). In other words, how they bring out the best in one another.
 
