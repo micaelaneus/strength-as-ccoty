@@ -2,15 +2,67 @@
 
 Culture is ritual: what we do, when and how we do it, and the stories we use to explain our motivation. We may practice in order to renew our dedication to our most enlightened ideals or to sanctify the nitty-gritty work of living. All reasons are good reasons.
 
-* short rituals are also awesome! don't make everything a big whopping deal
+Ritual practice is a rich subject that cannot get the treatment it deserves in a this short guide. For now, we want to share three critical concepts with you here as a prelude to a deeper discussion in another forum, and then give you a basic form for structuring sacred space.
+
+## PRINCIPLES
+
+### SLOW DOWN
+
+Get off the techno-capitalist treadmill! Move at an organic pace as suits your purpose, the capacities and desires of the partipants, and the season or ecological context. Ritual reclaims time from the mundane world to spend in utterly unproductive, wildly fulfilling ways: to clarify our individual and collective intuition, celebrate all sorts of cycles, and dream. Plan your rituals, especially how you will adapt them. Protect the sacred from becoming a social media performance, or a reason to go shopping. Do small and short rituals that last as long as three snaps of your fingers. Do practices that take so long, they disappear among the tree roots. As witches, we must practice again and again to sustain and renew our craft-- we will never be "done" with ritual, so don't let us catch you treating it like an item on your to-do list!
+
+### BRING YOUR BODY
+
+Witchcraft co to a fundamental tension between our sense of ourselves as reverence for the the world 
+
+Select and use ritual elements to link energetic or intuitive experiences with the sensations of our body, forming sense-memories of your magic. Culture is humanity's chief survival mechanism, its current fixation on self-destruction notwithstanding, and we evolved abilities to store socially-relevant information into our very cells. 
+
+
+Humans naturally form sense-memories through repetition or when an event has an intense neurological impacts us deeply, two indications that the event 
+
+These sense-memories let the subconscious distribute hold onto  what the subconscious self perceives as vital social information across our b in the  Humans naturally form sense-memories through repetition (the distinct scent of Grandma's house) or through strong significance ("they're playing our song") because instinct 
+
+we evolved to recognize essential social information and store it deep. Culture is humanity's chief survival mechanism, its current fixation on self-destruction notwithstanding, and our bodies evolved to distribute our capacity to distribute memory throughout our bodies.  level. 
+
+* one or more familiar senses: sight, sound, taste, touch, and smell
+* movement: dance, ceremonial gesture, somatic practices like tapping or swaying
+* rhythm, however sensed
+* homeostatic awareness: level of saiety, hydration, and alertness
+* environmental awareness: level temperature, humidity, or serenity
+* ecological awareness: seasonality, topography, climate
+* social awareness: alone, with a partner, in a group, or among a crowd
+
 
 Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
 
+
+1. rituals of all shapes and sizes have value because we want to re-enchant our lives
+
+## SCIENCE
+
+* build sense-memories
+* include movement and sound
+
 ## SHAPING SACRED SPACE
 
-Mark the transition into the ritual space by lighting a candle, invoking stone and plant allies, burning incense, or doing other ritual strategies. These elements help create a boundary between the ordinary and the sacred, setting this work apart from other day-to-day activities. You do not need any of them, however. Deep breaths and strong intentions work magic all by themselves. If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
+
+
+### INVOCATION
+
+* Who, what, when, why
+* Examples:
+  * "On this full moon in Taurus, we gather together to consecrate a collective grimoire."
+  * "I come to this park where I played as a child to summon a lover who wants to start a family with me, empowered by Ostara's energy."
+  * "We signed the divorce papers this morning. May my ritual this afternoon cleanse this apartment of any stagnant energy that may block my healing." 
+
+* settle into your body
+
+Mark the transition into the ritual space by lighting a candle, invoking stone and plant allies, burning incense, or doing other ritual strategies. These elements help create a boundary between the ordinary and the sacred, setting this work apart from other day-to-day activities. You do not need any of them, however. Deep breaths and strong intentions work magic all by themselves.
+
+* invoke allies
 
 An optional step is to call in any guides, ancestors, or other helpers. Invite them by name and tell them why you seek their presence. Since we are working with Strength this year, you might call in people who embody its themes. Example: “Grandma Jo, you dared to leave your husband despite society’s pressure to stay. Share your courage with me today.”
+
+If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
 
 Announce your reason for performing the ritual and dedicate the merits:
 *“I gather here to* [your purpose or a general desire], *and I dedicate any merits of my work to the highest good of all beings* [or name a recipient].”
@@ -18,11 +70,6 @@ Announce your reason for performing the ritual and dedicate the merits:
 When your reflection feels complete, close your circle according to your practice or simply say something like:
 
 “May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all. So concludes my ritual.”
-
-### BRING YOUR BODY
-
-* build sense-memories
-* include movement and sound
 
 ## RITUAL ELEMENTS & STRATEGIES
 
