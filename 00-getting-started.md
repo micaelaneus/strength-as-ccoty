@@ -1,3 +1,5 @@
+# WELCOME TO OUR STRENGTH YEAR
+
 Thank you for joining a worldwide community of radical witches!
 
 We made this guide to working with Strength to serve your growth and well-being, as well as support your participation in collective movements. It blends tarot, ritual, and astrology into a holistic esoteric practice. When combined with an antiauthoritarian ethos and made manifest by principled direct action, we call this practice *radical witchcraft*.
