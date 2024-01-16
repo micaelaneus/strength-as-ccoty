@@ -32,7 +32,7 @@ As witches, we must practice again and again to sustain and renew our craft-- we
 * Examples:
   * "On this full moon in Taurus, we gather together to consecrate a collective grimoire."
   * "I come to this park where I played as a child to summon a lover who wants to start a family with me, empowered by Ostara's energy."
-  * "We signed the divorce papers this morning. May my ritual this afternoon cleanse this apartment of any stagnant energy that may block my healing." 
+  * "We signed the divorce papers this morning. May my ritual this afternoon cleanse this apartment of any stagnant energy that may block my healing."
 
 * settle into your body
 
