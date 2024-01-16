@@ -8,39 +8,21 @@ Ritual practice is a rich subject that cannot get the treatment it deserves in a
 
 ### SLOW DOWN
 
-Get off the techno-capitalist treadmill! Move at an organic pace as suits your purpose, the capacities and desires of the partipants, and the season or ecological context. Ritual reclaims time from the mundane world to spend in utterly unproductive, wildly fulfilling ways: to clarify our individual and collective intuition, celebrate all sorts of cycles, and dream. Plan your rituals, especially how you will adapt them. Protect the sacred from becoming a social media performance, or a reason to go shopping. Do small and short rituals that last as long as three snaps of your fingers. Do practices that take so long, they disappear among the tree roots. As witches, we must practice again and again to sustain and renew our craft-- we will never be "done" with ritual, so don't let us catch you treating it like an item on your to-do list!
+Ritual reclaims time from the mundane world to spend in utterly unproductive, wildly fulfilling ways: to clarify our individual and collective intuition, celebrate all sorts of cycles, and dream. Get off the technocratic treadmill and start moving at a more organic pace set by the capacities and desires of the partipants in that season or ecological context. Plan ritual into your schedule as non-negotiable appointments. Do small and short rituals that last only as long as three snaps of your fingers. Do practices that take so long, they disappear among the tree roots. Steal back your life, as the anarchist saying goes, one sacred second at a time.
 
 ### BRING YOUR BODY
 
-Witchcraft co to a fundamental tension between our sense of ourselves as reverence for the the world 
+So much of the psycho-spiritual damage done by capitalism begins with the denunciation of the body. (A good amount of the outright violence starts this way, too.) Ritual gives us a chance to reenchant and re-embody ourselves with deliberate neurological retraining.
 
-Select and use ritual elements to link energetic or intuitive experiences with the sensations of our body, forming sense-memories of your magic. Culture is humanity's chief survival mechanism, its current fixation on self-destruction notwithstanding, and we evolved abilities to store socially-relevant information into our very cells. 
+Select and use ritual elements to link energetic or intuitive experiences with the sensations of your body: sight, sound, taste, touch, and smell. Rhythm has profound impacts on perception whether communicated through visual, auditory, or tactile channels, play with it. Join magic with movement through gesture, dance, or somatic exercises like tapping. With repetition, these elements create reliable triggers to transition into the heightened awareness and sustained focus that witchcraft requires. Also, it's super fun.
 
+Pay attention to your internal state, such as hungry or tired you felt at the start of the ritual, both before and after your practice. Watch for changes; with experimentation, you may find ceremonial methods to balance your mood or improve your sleep.
 
-Humans naturally form sense-memories through repetition or when an event has an intense neurological impacts us deeply, two indications that the event 
+### BEWARE BAD VIBES
 
-These sense-memories let the subconscious distribute hold onto  what the subconscious self perceives as vital social information across our b in the  Humans naturally form sense-memories through repetition (the distinct scent of Grandma's house) or through strong significance ("they're playing our song") because instinct 
+No, not the kind found in Ouja boards. Protect the sacred from becoming a social media performance, or a retail therapy trend. Choose only ethically sourced herbs and stones, work within your cultural tradition, and shop locally. Don’t taint your magic with settler-colonial ick, especially in a year ruled by an amplifying archetype like Strength. When in doubt, leave it out… of your online shopping cart.
 
-we evolved to recognize essential social information and store it deep. Culture is humanity's chief survival mechanism, its current fixation on self-destruction notwithstanding, and our bodies evolved to distribute our capacity to distribute memory throughout our bodies.  level. 
-
-* one or more familiar senses: sight, sound, taste, touch, and smell
-* movement: dance, ceremonial gesture, somatic practices like tapping or swaying
-* rhythm, however sensed
-* homeostatic awareness: level of saiety, hydration, and alertness
-* environmental awareness: level temperature, humidity, or serenity
-* ecological awareness: seasonality, topography, climate
-* social awareness: alone, with a partner, in a group, or among a crowd
-
-
-Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
-
-
-1. rituals of all shapes and sizes have value because we want to re-enchant our lives
-
-## SCIENCE
-
-* build sense-memories
-* include movement and sound
+As witches, we must practice again and again to sustain and renew our craft-- we will never be "done" with ritual, so don't let us catch you treating it like an item on your to-do list! Ritual is our reward for doing Hard Things in our lives and out in the world, so savor it.
 
 ## SHAPING SACRED SPACE
 
@@ -69,11 +51,12 @@ When your reflection feels complete, close your circle according to your practic
 
 “May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all. So concludes my ritual.”
 
+Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
+
 ## RITUAL ELEMENTS & STRATEGIES
 
 Now let's look at ritual elements and activities to work with Strength. Anything you love or feel called to works, these are just themes for Strength in particular.
 
-Beware bad vibes! Choose only ethically sourced herbs and stones, work within your cultural tradition, and shop locally. Don’t taint your magic with settler-colonial ick, especially in a year ruled by an amplifying archetype like Strength. When in doubt, leave it out… of your online shopping cart.
 
 ### MINERAL & PLANT ALLIES
 

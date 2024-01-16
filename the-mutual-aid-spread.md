@@ -8,9 +8,9 @@ As you get to know them, the archetypes of the Major Arcana start to feel like a
 
 Ground yourself by taking deep breaths, opening a ritual space, or centering with another method in your practice.
 
-Pull two cards to establish how Strength (Card 1) and your COTY (Card 2) see you, presently. 
+Pull two cards to establish how Strength (Card 1) and your COTY (Card 2) see you, presently.
 
-The next pair reveals existing energy or expertise related to the themes of Strength (Card 3) and your COTY (Card 4) that you bring to the situation. This pairing hints at how you might get these archetypes to team up to help you in times ahead. 
+The next pair reveals existing energy or expertise related to the themes of Strength (Card 3) and your COTY (Card 4) that you bring to the situation. This pairing hints at how you might get these archetypes to team up to help you in times ahead.
 
 The second set shows contradicting desires, characteristics, or patterns of Strength (Card 5) and COTY (Card 6). They may clash or confuse one another. These placements reveal prospective tensions.
 
