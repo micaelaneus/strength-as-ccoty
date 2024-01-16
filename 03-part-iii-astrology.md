@@ -81,7 +81,7 @@ This pairing rewards boldness but cautions against overreaching; egomania, worka
 
 ### STRENGTH IN THE HOUSES
 
-This archetype connects with two astrological houses, one from the zodiac and one from its position in the Major Arcana. Strength's association with Leo links it to that sign's home in the Fifth House, and its card number brings us to the Eighth House. Think of them as our collective houses for the year. 
+This archetype connects with two astrological houses, one from the zodiac and one from its position in the Major Arcana. Strength's association with Leo links it to that sign's home in the Fifth House, and its card number brings us to the Eighth House. Think of them as our collective houses for the year.
 
 #### THE FIFTH HOUSE OF CREATIVITIES
 
