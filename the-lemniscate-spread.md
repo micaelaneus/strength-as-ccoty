@@ -6,7 +6,7 @@ The lemniscate, or infinity symbol, represents those parts of life that ebb and 
 
 ## READING THE SPREAD
 
-Take a moment to settle into your body and articulate your query, preferably in writing. If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Shuffle and cut the cards, placing them along the curves of the lemniscate and intrepreting each one before pulling another.
+Take a moment to settle into your body and articulate your query, preferably in writing. If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Shuffle and cut the cards, placing them along the curves of the lemniscate and interpreting each one before pulling another.
 
 ### RECEDING ENERGY: THE CHARIOT YEAR
 
