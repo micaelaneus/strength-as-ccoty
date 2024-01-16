@@ -1,6 +1,6 @@
 # TAROT: The Mutual Aid Spread
 
-As you get to know them, the archetypes of the Major Arcana start to feel like a group of long-time friends. Some get on like gangbusters, some obviously slept together, and a few inevitably bicker. Use this spread to check on how well your COTY vibes with Strength, and where you might need to mediate. One more thing: we show the cards in an x-shape to signify the energies *intersect*, not necessarily *cross* as in the common +-shaped overlap.
+As you get to know them, the archetypes of the Major Arcana start to feel like a group of long-time friends. Some get on like gangbusters, some obviously slept together, and a few inevitably bicker. Use this spread to check on how well your COTY vibes with Strength, and where you might need to mediate. One more thing: we show the cards in an x-shape to signify the energies *intersect,* not necessarily *cross* as in the common +-shaped overlap.
 
 ![TAROT_ The Mutual Aid Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/0f0fd723-e8f6-4fba-b6b9-4367f3bce75a)
 
