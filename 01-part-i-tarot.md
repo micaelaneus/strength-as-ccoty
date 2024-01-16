@@ -2,19 +2,19 @@
 
 First and foremost, the Strength card encourages us to draw on courage and compassion to navigate challenges with conviction. This card encourages us to confront our fears, embrace challenges, and cultivate resilience on the journey toward self-discovery. As our Collective Card of the Year, it promises a period of tremendous growth and expansive possibilities that flourish even amidst obstacles.
 
+![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/0736cce7-15cc-4979-abd4-ab57fcadd694)
+
 The Major Arcana lays out a sequence of metaphorical rites of passage that begin with a novice (Key 0 - The Fool) setting out on the road and end when they attain mystical integration with the cosmos (Key 21 - The World). Strength comes in the first half of this journey in which we acquire psychological tools to navigate society and achieve self-actualization in the second half.
 
-Strength teaches us how to balance the raw power of our will as developed in the Seventh (The Chariot) with a more mature understanding of what strength means: resilience, emotional self-regulation, and the ability to meet others where they are. Cultivating these "soft skills" in this Eighth Key prepares us to pass The Hermit’s more esoteric tests in the Ninth.
+Strength teaches us how to balance the raw power of our will as developed in the Seventh Key (The Chariot) with a more mature understanding of what strength means: resilience, emotional self-regulation, and the ability to meet others where they are. Cultivating these "soft skills" in the Eighth Key prepares us to pass The Hermit’s more esoteric tests in the Ninth.
 
-We cover the astrological correspondences in greater detail in Astrology. Plants, minerals, and other associations with Strength are found in Ritual Strategies. For now, let's look at the symbols found on the tarot card itself and explore their meaning.
-
-![08strength](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/0736cce7-15cc-4979-abd4-ab57fcadd694)
+We cover the astrological correspondences in greater detail in Part III: Astrology. Plants, minerals, and other associations with Strength are found in Part II: Ritual. For now, let's look at the symbols found on the tarot card itself and explore their meaning.
 
 ## SYMBOLS OF THE ARCHETYPE
 
 In an open field, we see a Figure holding the mouth of a Lion with a full mane and lolling tongue. The Lion has claws yet looks subdued and its tail tucks between its legs. The Figure wears a simple white robe like those worn by initiates or romanticized peasants. Garlands of blooming flowers that might be roses wrap around their waist, and they wear a crown of meadow grasses or spring wheat. The only jewelry or ornament we see is the lemniscate that floats above the Figure’s head. In the distance, a forest lies at the base of a mountain range. The sky is cloudless.
 
-Roman numerals for eight appear at the top-center and a box separates the card’s title, “Strength,” from the imagery. The artist, Pamela Coleman Smith, put her stylized initials at the bottom-right of her illustration.
+Roman numerals for eight appear at the top-center and a box separates the card’s title, Strength, from the imagery. The artist, Pamela Coleman Smith, put her stylized initials at the bottom-right of her illustration.
 
 ### THE LION’S JAWS
 
@@ -22,7 +22,7 @@ The card’s central image shows a Figure grasping the open jaws of a Lion. Many
 
 ### FLOWERS & WREATHS
 
-The vibrant foliage adorning the Figure’s waist and crown exudes joy and boldly shouts *huzzah for Life!* In a socio-economic system built on constraints, flourishing takes Strength. Think of the audacity shown by wildflowers growing along a highway median, pushing up through the asphalt meant to destroy them. Or picture the vivid genitalia-like splendor of the orchid. No shame, baby. Do you have the courage of a dandelion?
+The vibrant foliage adorning the Figure’s waist and crown exudes joy and boldly shouts huzzah for Life! In a socio-economic system built on constraints, flourishing takes Strength. Think of the audacity shown by wildflowers growing along a highway median, pushing up through the asphalt meant to destroy them. Or picture the vivid genitalia-like splendor of the orchid. No shame, baby. Do you have the courage of a dandelion?
 
 ### THE LEMNISCATE AKA INFINITY SYMBOL
 
@@ -30,7 +30,7 @@ This well-known icon floating above the Figure’s head connects them to the eth
 
 ### THE WHITE ROBE
 
-White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles. Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure wear this simple robe rather than armor or an aristocratic fabric like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice prepared for their next rite of passage. Notice that the Figure gazes calmly and directly into the Lion’s eyes, not outward into our own as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments.
+White robes symbolize purity, spiritual clarity, and the alignment of one's actions with higher principles. Traditionally, we wear all white as initiates, as (don’t laugh) virginal brides, and finally as shrouds. Seeing the Figure wear this simple robe rather than armor or an aristocratic fabric like silk tells us we’re not dealing with those forms of power. This Strength enters humbly, a perpetual novice preparing for their next rite of passage. Notice that the Figure gazes calmly and directly into the Lion’s eyes, not outward into our as in most cards in the first half of the Major Arcana. We take this to mean that Strength has the discipline to stay in their lane, keep their eyes on their own paper, and never read the comments.
 
 ## INTERPRETATION
 
@@ -52,17 +52,16 @@ Or does the Figure grip the Lion’s jaws as a show of superiority and dominatio
 
 In the real world, people “train” large cats by controlling access to food, mixing affection with intimidation, and inflicting pain. Violence and head games induce a condition of learned helplessness that entrenches the abuse into the cats’ psyches. Honestly, we cheer a little when we hear about one of these cats mauling their captor-trainers.
 
-We see this dangerous fixation on control in Strength's shadow. Asserting dominance may feel amazing at the moment, but the lack of empathy ultimately limits growth for all parties involved. We can use this card to examine several ways ]this pattern plays out in our relationships.
+We see this dangerous fixation on control in Strength's shadow. Asserting dominance may feel amazing at the moment, but the lack of empathy ultimately limits growth for all parties involved. We can use this card to examine several ways this pattern plays out in our relationships.
 
 First, a desire to demonstrate strength might lead to a mindset of overcoming challenges at any cost. A deadly dog-eat-dog worldview allows us to justify all manner of (self-) destructive behaviors. Next thing you know, this flowery Figure morphs into a latte-guzzling, over-scheduled girlboss who scares the crap out of poor Lion. (Look at the tail between its legs!) This attitude could result in neglecting your well-being or that of others to pursue external validation. Consider how ideologies like scarcity thinking, hustle culture, or hyper-individualism negatively influence the matter at hand.
-
 Alternatively, we might put on a facade of strength to appear composed and resilient on the outside while struggling internally. This emotional armor causes difficulty in seeking support when needed and may manifest as toxic positivity. This card tells us that not only do we need help, we deserve it. Perhaps you must give or receive a form of support that makes you somehow uncomfortable.
 
 We often confuse self-criticism with self-discipline. Beating yourself up works at times, else we wouldn’t do it, right? But the costs to our self-esteem and peace of mind can be staggering. Strength suggests that it’s time for a new strategy. Try incorporating self-compassion into your approach to a challenge and trust that self-discipline can emerge from self-acceptance.
 
-Love never seeks to control. All forms of domination or deception crush the spirit of awe and reverence that love requires. Yet the fear of losing love can make us feel the need to exert control in subtle ways. For example, we might hide parts of ourselves or start fibbing to manipulate how they perceive us. If we suspect our partners have begun to grow away from us, we pressure them similarly. Some relationships go on like this for decades-- will yours?
+Love never seeks to control. All forms of domination or deception crush the spirit of awe and reverence that love requires. Yet the fear of losing love can make us feel the need to exert control in subtle ways. For example, we might hide parts of ourselves or start fibbing to manipulate how others perceive us. If we suspect our partners have begun to grow away from us, we pressure them similarly. Some relationships go on like this for decades— will yours?
 
-Perhaps you notice another theme connecting Strength’s shadows: the capacity to endure what ought not to be endured. On an individual level, we experience this shadow when we suppress our feelings rather than deal with conflict openly. Misalignment causes profound distress, and still, we prefer to suffer than deal with the discomfort of acknowledging the issue. We gaslight ourselves, do extra physical or affective labor, or make excuses for a toxic person– anything and everything to protect ourselves from having to make hard choices based on facts. Eventually, the situation explodes, fizzles out, or becomes our new normal. If you’re caught in this trap, Strength’s appearance means you need to get real about the situation before you're forced to gnaw off a leg.
+Perhaps you notice another theme connecting Strength’s shadows: the capacity to endure what ought not to be endured. On an individual level, we experience this shadow when we suppress our feelings rather than deal with conflict openly. Misalignment causes profound distress, and still, we prefer to suffer than deal with the discomfort of acknowledging the issue. We gaslight ourselves, do extra physical or affective labor, or make excuses for a toxic person— anything and everything to protect ourselves from having to make hard choices based on facts. Eventually, the situation explodes, fizzles out, or becomes our new normal. If you’re caught in this trap, Strength’s appearance means you need to get real about the situation before you're forced to gnaw off a leg.
 
 On a collective level, these shadows manifest as political inertia. We vote for “the lesser of two evils” rather than organize ourselves to build a more just and beautiful world. We spin our wheels on social media rather than show up in real life or do any number of other behaviors that disconnect us from our collective power. Problems with accountability, consent, and cultural appropriation fall into this same category.
 
