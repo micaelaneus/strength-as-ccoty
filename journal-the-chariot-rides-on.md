@@ -4,7 +4,7 @@ Contrary to the cliche, we don’t learn from experience— we learn by reflecti
 
 ![07chariot](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/78db8324-9d16-4d63-9c2e-015100a391d8)
 
-The Chariot brings up diligence, mastery, and action as essential skills of the adept. The Driver shown on this card feels sexy, not romantic or flirty, largely due to their aura of self-confidence. They link hard-earned expertise with intuition and passion (represented by the two sphinxes pulling the cart) to form a highly charismatic force that others find irresistible. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness.
+The Chariot brings up diligence, mastery, and action as essential skills of the adept. The Driver shown on this card feels *sexy,* not romantic or flirty, largely due to their aura of self-confidence. They link hard-earned expertise with intuition and passion (represented by the two sphinxes pulling the cart) to form a highly charismatic force that others find irresistible. This archetype is about knowing our self-worth and making bold moves. Its shadow covers excess ambition, burnout, and impulsiveness.
 
 We based the following prompts on symbols on this card to reveal how The Chariot rode through your life in 2023. For each prompt, list out the events or insights that occurred in that area of your life and then summarize your takeaways using the questions as inspiration.
 

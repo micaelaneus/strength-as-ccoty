@@ -1,6 +1,6 @@
 # RITUAL: The Lion's Remedy
 
-In the Lion’s roar, we hear an undeniable message: you’ve got to feel it to heal it, and the only way out is through. Staying present with difficult emotions is a critical step in any healing process and it inspires this ritual. We begin and end with journaling before embarking on a visualization journey to Strength’s meadow. Along the way, we do a simple banishing/releasing practice and cure a Lion of mystical indigestion.  
+In the Lion’s roar, we hear an undeniable message: *you’ve got to feel it to heal it, and the only way out is through.* Staying present with difficult emotions is a critical step in any healing process and it inspires this ritual. We begin and end with journaling before embarking on a visualization journey to Strength’s meadow. Along the way, we do a simple banishing/releasing practice and cure a Lion of mystical indigestion.  
 
 MATERIALS
 
