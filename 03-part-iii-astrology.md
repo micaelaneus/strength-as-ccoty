@@ -2,6 +2,8 @@
 
 The stars do not map out our lives; they only show us the edges of our comfort zones. Astrology should put us in touch with our limits and motivate us to test them, joyfully and compassionately, as acts of cosmic self-love. We envision your life as a luminous jewel spinning in space, every facet a wonder to behold, and hope this work inspires you to go star-gazing with us.
 
+## OUR APPROACH
+
 As with tarot and ritual, many approaches to astrology exist and we again align ourselves with the mythopoetic and ecology-based schools of thought. Our use of natal charts and annual transits emphasizes potentialities over predictions, and we see the zodiac as another source of archetypal inspiration.
 
 We don’t believe in “bad” astrological placements any more than we believe in bad cards. Everything we observe in the cards or the sky shows us how to grow wiser and stronger even when they point out areas to improve. You may or may not like what you see in your chart; either way, you'll know where to focus your intentions in the coming year.
@@ -57,7 +59,7 @@ Signs have associated alchemical elements: Fire, Water, Earth, and Air. Every el
 
 We do not add polarity to signs or houses because we have yet to finde a binary that carries more meaning than baggage. We mention them because you will encounter many versions in other astrological sources: masculine-feminine, yin-yang, light-dark, active-passive, positive-negative, etc. Our exercises and spreads do not include them, but you could easily add them to your interpretation.
 
-## CORRESPONDENCES OF THE ARCHETYPE
+## CORRESPONDENCES OF THE STRENGTH ARCHETYPE
 
 SIGN - Leo
 
@@ -77,7 +79,7 @@ As the eighth card in the Major Arcana, the Strength card aligns with the Eighth
 
 This pairing rewards boldness but cautions against overreaching; egomania, workaholism, and pushiness must be curbed. All matters of the Eighth House merit consideration during this period, and they do get tricksy! This house relates to transformations, gray areas, and energetic exchanges, which can be tough to navigate. On the other hand, it makes this year a fantastic time to shake up any patterns you’re tired of reliving.
 
-### HOUSES OF STRENGTH
+### STRENGTH IN THE HOUSES
 
 This archetype connects with two astrological houses, one from the zodiac and one from its position in the Major Arcana. Strength's association with Leo links it to that sign's home in the Fifth House, and its card number brings us to the Eighth House. Think of them as our collective houses for the year. We talk about working with Strength in relation to your unique natal chart in the next section.
 
