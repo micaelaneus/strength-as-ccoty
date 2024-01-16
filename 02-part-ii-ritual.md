@@ -55,7 +55,7 @@ Celebrate and sustain yourself with rituals, great and small, and you will never
 
 ## RITUAL ELEMENTS & STRATEGIES
 
-Now let's look at ritual elements and activities to work with Strength. Anything you love or feel called to works, these are just themes for Strength in particular.
+We use ritual elements to physicalize the ethereal experiences of our practice. They root the ephemeral into tangible objects and gestures that we can trust to help us return to those states or summon those energies. Because they aid our work, we often call these elements our allies. Use this section to inspire a spiritual scavenger hunt for allies that connect you to the Strength archetype, or to any theme you wish to explore in ceremony.
 
 ### MINERAL & PLANT ALLIES
 

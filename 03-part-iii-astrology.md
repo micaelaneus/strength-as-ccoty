@@ -140,3 +140,13 @@ Someone with Venus in their Eighth House (Transformations) should check in with 
 A secondary area to explore is aesthetics, generally. This house encourages Venus-in-Leo to revamp their image (wardrobe, social media presence, etc.), refresh their home decor, or spend more time this year appreciating the arts. Fixed Fire inspires them to get an annual membership to the city ballet company.
 
 To put the power of this placement into action, they decide to clean out their closet and every Friday (Venus's Day), they fill a vase with fresh flowers and branches to brighten their bedroom. They vow to meet all first dates at galleries or live performances rather than a bar or coffee shop.
+
+## PRIORITIZE YOUR PLACEMENTS
+
+The number of placements and therefore interpretations this exercise covers sometimes gets overwhelming, especially if you have a stellium in one or more house. We have three pieces of advice to make it more manageable:
+
+1. Let your intuition tell you which placements to focus on first. Use curiosity as a method to prioritize.
+2. Analyze the placements featuring the Classical Planets before adding outer planets or asteroids.
+3. Break up your analysis over the course of the year! Your natal chart will never change, so you don't have a deadline.
+
+If you want to join the newsletter, you could plan to interpret your placements as we go through the astrological seasons. Analyze the planets or houses related to each sign as we cover it in our mini-guides. Or use this method without joining, just find a way to escape the trap of perfectionism and keep having fun.
