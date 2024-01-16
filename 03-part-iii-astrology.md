@@ -18,6 +18,8 @@ Astrological storytelling was one of many tools they used to make choices in unc
 
 At the heart of every astrological interpretation lies the idea of placement: the confluence of a planet, a zodiac sign, and a house that creates a unit of meaning. When someone says "I'm a Scorpio Rising", they mean that the Sun was in the sign of Scorpio in the First House (the one "rising" on the horizon) at the moment of their birth. Folks generally use that pattern to talk about placements: a planet in a sign in a house.
 
+![Astro Venn Diagram (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38c00b8b-303d-44c1-b7e3-a27858ef2434)
+
 Placements provide the basis for most of the ways we interpret charts and transits, the two categories of astrological readings. Charts describe the position of the sky at a moment in time, like a snapshot, whereas transits refer to movements (animated gifs) like a planet moving between houses.
 
 Though we don't use them in this guidebook, every decent natal chart will show any aspects and patterns found in your sky. An aspect (trine, conjunction, quincunx, etc.) refers to the angle between placements, and a pattern (e.g., Grand Trine, Yod) refers to collections of aspects that generate larger placements. Think of them as meta-aspects, or placements-of-placements.
@@ -41,7 +43,7 @@ We prefer to say Familial and Generational rather than Personal and Impersonal, 
 
 The zodiac refers to the movement of the Sun through the sky over a year, divided into twelve portions called signs. Each sign conveys an aura or mood that colors how elements under it express themselves. Someone with Venus-in-Leo may favor passion and come on strong, whereas someone with Venus-in-Virgo might see emptying the dishwasher as foreplay (You'll understand when you're older.)
 
-Signs of the zodiac follow a predetermined order that begins and ends at the equinox in March, with the sign of Aries, and change after approximately thirty days. This duration has nothing to do with lunar months although they often fit together nicely because of their similar cycle lengths (a lunar month lasts about 28 days). 
+Signs of the zodiac follow a predetermined order that begins and ends at the equinox in March, with the sign of Aries, and change after approximately thirty days. This duration has nothing to do with lunar months although they often fit together nicely because of their similar cycle lengths (a lunar month lasts about 28 days).
 
 A full moon happens in the sign opposing the season, e.g., Capricorn season has a full moon in Cancer.
 
@@ -117,25 +119,11 @@ Leo’s Fire is Fixed, the most mature and stabilizing modality. It beats out a 
 
 Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You need your natal chart, which many online sources will calculate for free (see Resources and References).
 
-Once you have it, note the signs and planets for:
-
-1. the house ruled by Leo
-2. the house hosting your Sun
-3. your Fifth house
-4. your Eighth house
-
-INSERT TABLE:
-HOUSE - SIGN - ELEMENT - MODALITY - PLANETS
-
-* Fill out those four placements, like:
-  * blank - LEO - FIRE - FIXED - blank
-  * blank - blank - blank - blank - The Sun (with space for others)
-  * FIFTH - blank - blank - blank - blank
-  * EIGHTH - blank - blank - blank - blank
+Once you have it, note the signs and planets for 1) the house ruled by Leo, 2) the house hosting your Sun, 3) your Fifth house, and 4) your Eighth house.
 
 Each of these houses connects to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible combination in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another to illuminate a core theme or field of interest.
 
-![Astro Venn Diagram (1)](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38c00b8b-303d-44c1-b7e3-a27858ef2434)
+*INSERT TABLE HERE*
 
 Complete the following prompts for each of the combinations you listed in the table above, even your empty houses. But remember, this isn't a social studies test! Focus on the meanings that matter most to you rather than on getting the astrological definitions correct (whatever that is).
 
@@ -151,4 +139,4 @@ Someone with Venus in their Eighth House (Transformations) should check in with 
 
 A secondary area to explore is aesthetics, generally. This house encourages Venus-in-Leo to revamp their image (wardrobe, social media presence, etc.), refresh their home decor, or spend more time this year appreciating the arts. Fixed Fire inspires them to get an annual membership to the city ballet company.
 
-To put the power of this placement into action, they decide to clean out their closet and meet all first dates at galleries or live performances rather than a bar or coffee shop. Every Friday (Venus's Day), they fill a vase with fresh flowers and branches to brighten their bedroom.
+To put the power of this placement into action, they decide to clean out their closet and every Friday (Venus's Day), they fill a vase with fresh flowers and branches to brighten their bedroom. They vow to meet all first dates at galleries or live performances rather than a bar or coffee shop.
