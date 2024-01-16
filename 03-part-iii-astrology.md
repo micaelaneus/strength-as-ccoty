@@ -10,6 +10,7 @@ We don’t believe in “bad” astrological placements any more than we believe
 
 More technically, this guidebook uses Tropical (aka Western) astrology with Whole Sign Placements to calculate natal charts. We went with Whole Signs rather than the more common method, Placidus, because the charts look less intimidating. A simpler chart makes introducing the zodiac into your tarot practice more inviting, in our opinion, and other methods of determining houses do not conflict with our material as far as we see.
 
+The most archaic roots of astrology remain buried and a teensy bit tangled in the archeological record, to put it mildly. Yet the research clearly shows that ancient astrologers connected the stars to the seasons and used their observations to advise their communities in the practical matters of life. They inhabited a living planet surrounded and sustained by awe-inspiring forces, not a resource-rich but ultimately insensate rock described in European thought.
 
 Astrological storytelling was one of many tools they used to make choices in uncertain times shaped by incomprehensible forces, not unlike what we do today. They wanted people to feel less afraid, and more awe-struck, and we humbly place ourselves in this lineage.
 
