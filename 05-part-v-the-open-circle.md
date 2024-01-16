@@ -34,7 +34,7 @@ Writer Sophie Strand created this simple but powerful ritual and shares it publi
 
 In the past, people worked with beautiful tools built to honor and inspire those who used them. Industrial capitalism took that away, robbing daily life of some of its splendor. Take it back by re-framing the mundane or sanctifying your tools.
 
-* Write your to-do list poetically. Don’t go to the dentist— get your seashells polished.
+* Write your to-do list poetically. Don’t go to the dentist— get your seashells polished!
 * Turn your morning mug into a sacred vessel. Fill it with stone and plant allies that attract the power you want to infuse into your life and leave it under a full moon. (Take them out before you pour the tea!)
 * Enchant your commute by attaching mantras or intentions to places you pass, or divining personal omens. Crossing that bridge or overpass brings you into a new realm, and a hawk on that telephone poll means you should make love as soon as possible.
 * Sanctify one of the super fat Sharpies and a bag of stickers as magic wands and sigils, then keep them handy so you can cover up fascist graffiti in public restrooms.
