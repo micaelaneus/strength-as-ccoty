@@ -86,7 +86,7 @@ You totally should, though.
 
 Everyone refers to the writing of other tarot practitioners, even experts (barf) because we find inspiration in the diversity of thought. Never, ever apologize for looking up a card. At the same time, we encourage you to trust your intuition. Pay attention to your immediate impressions and associations, jot them down in your journal, and then look up what others have to say.
 
-We adhere to a mythopoetic style of reading tarot that draws from folklore and mythology, Jungian psychology, symbolic traditions, metaphysical systems like alchemy, and other cultural sources that emphasize the transformative power of self-discovery. This approach focuses on developing potential rather than making predictions. 
+We adhere to a mythopoetic style of reading tarot that draws from folklore and mythology, Jungian psychology, symbolic traditions, metaphysical systems like alchemy, and other cultural sources that emphasize the transformative power of self-discovery. This approach focuses on developing potential rather than making predictions.
 
 Any card that you pull for a placement will relate a theme, ask a question, or raise a flag for your consideration. The magic comes from blending its traditional or common interpretations with your intuition, possibly with the assistance of a spread or tarot reader. We do not surrender our free will or peace of mind to a piece of paper, but we thoughtfully listen to long-established wisdom inscribed on its surface before tossing it out.
 
