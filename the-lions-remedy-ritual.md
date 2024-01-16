@@ -33,7 +33,7 @@ Keep walking. The slope decreases-- you must have passed the peak. Now a dense f
 
 You roam about the meadow looking for dragonflies or quails but you don’t see any. Instead, at the center of the field, you meet eyes with a Lion. It locks you into the unblinking, all-knowing power stare that cats learn from the Moon. You will have to face it.
 
-Time stops, yet many moments pass. The Lion only looks at you, neither blinking nor moving, and slowly you realize it’s in some kind of distress. An irresistible urge to touch the Lion takes command of your body and you begin a slow approach. 
+Time stops, yet many moments pass. The Lion only looks at you, neither blinking nor moving, and slowly you realize it’s in some kind of distress. An irresistible urge to touch the Lion takes command of your body and you begin a slow approach.
 
 When you reach it, you can tell it’s in an enormous, absolutely soul-crushing amount of pain. You reach out to comfort it, feeling the warmth of its body in the sunlight as you caress it around the ears. You pick a few small burs out of its coat and feel the nubby line of an old scar under its mane. The Lion melts in the face of your compassion, rubbing its face into your hands for more love.
 
