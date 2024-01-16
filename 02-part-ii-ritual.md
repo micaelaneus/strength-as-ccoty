@@ -6,9 +6,9 @@ Ritual practice is a rich subject that cannot get the treatment it deserves in a
 
 ## PRINCIPLES
 
-### SLOW DOWN
+### PROTECT SACRED TIME
 
-Ritual reclaims time from the mundane world to spend in utterly unproductive, wildly fulfilling ways: to clarify our individual and collective intuition, celebrate all sorts of cycles, and dream. Get off the technocratic treadmill and start moving at a more organic pace set by the capacities and desires of the partipants in that season or ecological context. Plan ritual into your schedule as non-negotiable appointments. Do small and short rituals that last only as long as three snaps of your fingers. Do practices that take so long, they disappear among the tree roots. Steal back your life, as the anarchist saying goes, one sacred second at a time.
+Ritual reclaims time from the mundane world to spend in utterly unproductive, wildly fulfilling ways: to clarify our individual and collective intuition, celebrate all sorts of cycles, and dream. Get off the technocratic treadmill! Move at a more organic pace set by the capacities and desires of the partipants in that season or ecological context. Plan ritual into your schedule as non-negotiable appointments. Do small and short rituals that last for three snaps of your fingers. Do practices that take so long, ivy grows over them and they disappear among the tree roots. Steal back your life, as the anarchist saying goes, one sacred second at a time.
 
 ### BRING YOUR BODY
 
@@ -57,7 +57,6 @@ Celebrate and sustain yourself with rituals, great and small, and you will never
 
 Now let's look at ritual elements and activities to work with Strength. Anything you love or feel called to works, these are just themes for Strength in particular.
 
-
 ### MINERAL & PLANT ALLIES
 
 Fresh or dried roses and rosewater; edible herbs associated with protection magic such as sage, bay leaf, and rosemary; frankincense above all other incenses but also smudging plants like mugwort or cedar that have fortifying uses (as opposed to healing or cleansing herbs like sage and palo santo); essential oils containing these herbs.
@@ -76,7 +75,7 @@ Stones represent Earth, which balances Fire's more manic manifestations. Consequ
 
 While you do not need an altar at home, you may very much enjoy one. Dedicate an area to ritual elements and objects that keep your mind on your magic. Tables are traditional but a corner of your desk, a bookshelf, or a windowsill works perfectly well. If you can’t devote that much space to a complex altar, get devious: a double-page collage in your journal stood upright makes a pleasant background, or try an empty tin of breath mints. All energy spent creating beauty and cultivating joy returns to you, three times three! (All energy spent impressing algorithms is wasted.)
 
-You may find pleasure in honoring or calling in people who incarnate an aspect of the Strength archetype to you. Hero-worship is very shadow-Magician in our minds, but we love to celebrate someone who embodies the sunny side of humanity. Try adding their image to your altar, playing their music while you journal, or eating their favorite foods. Maybe skip smoking their favorite cigarette? Everything that serves life is fair game.
+You may find pleasure in honoring or calling in people who incarnate an aspect of the Strength archetype to you. Hero-worship is very shadow-Magician in our minds, but we love to celebrate someone who embodies an admirable aspect of humanity. Try adding their image to your altar, playing their music while you journal, or eating their favorite foods. Maybe skip smoking their favorite cigarette? Everything that serves life is fair game.
 
 ### PLACES OF POWER
 
@@ -93,5 +92,3 @@ We strongly associate Strength with curse-breaking. Think of a curse as any patt
 Manifesting has gotten some well-deserved critique in the last few years, and we agree with all of it. It takes more than open chakras to get what you need in this capitalist thrill factory. The idea of magical shortcuts for the pure of heart insults us all, and it degrades the principles of radical witchcraft. That said, using ritual to direct your willpower and put yourself in the right headspace to succeed has value in our eyes. For an endeavor where you acknowledge the role of privilege and have a plan to do the work, rituals to manifest helpers or opportunities make sense in a Strength year.
 
  ![01_magicians_wand_1](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/38bdbba5-4e0b-40b5-8abd-3d7111ba2fd4)
-
-
