@@ -1,16 +1,16 @@
 # RITUAL: The Lion's Remedy
 
-In the Lion’s roar, we hear an undeniable message: you’ve got to feel it to heal it, and the only way out is through. Staying present with difficult emotions is a critical step in any healing process and it inspires this ritual. We begin and end with journaling before embarking on a visualization journey to Strength’s meadow. Along the way, we pull cards, do a simple banishing/releasing practice, and cure a Lion of mystical indigestion.  
+In the Lion’s roar, we hear an undeniable message: you’ve got to feel it to heal it, and the only way out is through. Staying present with difficult emotions is a critical step in any healing process and it inspires this ritual. We begin and end with journaling before embarking on a visualization journey to Strength’s meadow. Along the way, we do a simple banishing/releasing practice and cure a Lion of mystical indigestion.  
 
 MATERIALS
 
 * Journal
 * Small scraps of paper
-* Candle and burn bowl*
+* Candle and burn bowl
 * Other ritual elements such as incense, stone allies, etc.
 * Optional: notes from The Chariot Rides On for the releasing practice
 
-*Any fire-safe container not used for food prep can become a burn bowl for the releasing practice. Fireplaces, compost bins, or even toilets work as substitutes. Insert the element that corresponds to your method, wherever we invoke fire, like “earth” for composting or “water” for flushing. (Think carefully before adding paper to waterways, though.)
+Any fire-safe container not used for food prep can become a burn bowl for the releasing practice. Fireplaces, compost bins, or even toilets work as substitutes. Insert the element that corresponds to your method, wherever we invoke fire, like “earth” for composting or “water” for flushing. (Think carefully before adding paper to waterways, though.)
 
 ## OPEN A RITUAL SPACE
 
@@ -48,13 +48,13 @@ Wipe the Lion’s spit off your new totem. You’re bringing this home with you,
 * Gather the scraps of paper from the first step of the ritual and prepare your method for releasing them; we use a candle and burn bowl.
 * One by one, lift each scrap in your right hand and recite a one-line banishing spell (examples below) as you carefully set it aflame. If you wish to read it or name what you’re releasing (very optional), use only the shortest description possible. Retelling the story will re-activate those neural pathways just when we want that pattern to fade away, so briefer is better.
 * One-line banishing spells in order of increasing intensity:
-  * *By fire, I return this energy* [or brief description] *to its source. May it flow to the place where it does the most good— it’s no longer needed here.*
-  * *By the power of fire, I surrender and release you, ending all attachments. May you go to serve life in a new form, in a new place.*
-  * *By fire, I banish you. For my highest good, I banish you. To serve life* [or a specific cause], *I banish you.*
-  * [Begin by naming the issue, or simply say:] *I cast you out. I no longer desire your presence in my life, your energy is unwelcome, and so you must go. By fire, I burn and banish you. Do not return.*
-  * *With this flame and by my will, I reclaim all power from you* [or brief description]. *From this moment until the end of time, I am safe from your control. This fire has cleansed my life of your influence, and I am free.* [At “power”, name anything you want to call back like dignity, financial freedom, or romantic longing.]
+  * By fire, I return this energy [or brief description] to its source. May it flow to the place where it does the most good— it’s no longer needed here.
+  * By the power of fire, I surrender and release you, ending all attachments. May you go to serve life in a new form, in a new place.
+  * By fire, I banish you. For my highest good, I banish you. To serve life [or a specific cause], I banish you.
+  * [Begin by naming the issue, or simply say:] I cast you out. I no longer desire your presence in my life, your energy is unwelcome, and so you must go. By fire, I burn and banish you. Do not return.
+  * With this flame and by my will, I reclaim all power from you* [or brief description]. From this moment until the end of time, I am safe from your control. This fire has cleansed my life of your influence, and I am free. [At “power”, name anything you want to call back like dignity, financial freedom, or romantic longing.]
 * When you finish releasing every bit of old baggage, close out this portion of the ritual by speaking a version of the following phrase:
-  * *May this flame find and release any negative energy, attachment, or influence not yet named which does me harm, for my good and the good of all beings.*
+  * May this flame find and release any negative energy, attachment, or influence not yet named which does me harm, for my good and the good of all beings.
 * Use incense, smudging herbs, or essential oils to clear the air. Peeling citrus and adding the rinds to hot water works as well, and so does simply opening a window. If using a dedicated banishing-protecting candle (often black), extinguish it. Leave your ritual candle burning.
 
 Now that you’ve cleaned out your bag, you find the enchanted Lion's Remedy fits perfectly, and carrying it is no trouble. Content with your adventure, you pause for a moment to soak in the delicious power of the meadow before heading back toward the mountain to home.
@@ -69,9 +69,9 @@ Reflect on your journey to the meadow:
 
 Taking all these ideas into consideration, set an intention for the next few months. Write down what you desire and what action/s you will perform to manifest it in one clear sentence. Good intentions capture processes and actions within our control whereas a goal focuses on outcomes, which we may not control.
 
-*“I’m going to get a job.”* Okay.
+“I’m going to get a job.” Okay.
 
-*“I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.”* Bingo!
+“I will end this period of financial hardship by finding three ways to broaden my job search, canceling my avocado toast subscription, and getting Luisa to critique my resume.” Bingo!
 
 When your reflection feels complete, close your circle according to your practice or simply say something like:
 
@@ -84,7 +84,5 @@ We have three ideas for extending this ritual into everyday life. Choose one or 
 * For the next eight days, read or speak your intention aloud to yourself as you perform an everyday act of self-care. Stick a piece of paper with your intention written on it between the bristles of your hairbrush to remind yourself to recite it into the mirror as you brush your hair. Enchant your lip gloss, moisturizer, or inhaler– anything you use at least once per day and relates to self-care that will remind you to recite your intention.
 * Keep a tangible incarnation of your Lion’s Remedy totem near you for the next eight days or the duration of your intention. Translate more fantastical totems that don’t fit in your pocket into an everyday item that loosely correlates. A hot air balloon might turn into a heater or bolt cutters into kitchen shears.
 * Want your magic to last? Solidarity is forever! Take time to support a collective effort related to the fears and obstacles you banished with the Lion’s Remedy. For instance, someone who cleansed a bad relationship might volunteer at (or donate to) a local shelter for domestic abuse survivors. Feel like your job or living situation is a prison? Help others escape incarceration by contributing to the National Bail-Out. Picking up litter would work for any issue— bless some work gloves with your intention and fill a bag at your local beach or park.
-
-## TRANSITION 
 
 Good idea on how to connect with the archetype, we can personalize how we work with Strength by adding astrology. Make sure you have your natal chart handy.
