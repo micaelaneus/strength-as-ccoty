@@ -1,12 +1,12 @@
-## JOURNAL: STRENGTH IN YOUR NATAL SKY
+# JOURNAL: STRENGTH IN YOUR NATAL SKY
 
-Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You need your natal chart, which many online sources will calculate for free (see Resources and References).
+Incorporating astrology is an easy and effective way to personalize how you work with aspects of Strength. You need your natal chart, which many online sources will calculate for free.
 
 Once you have it, note the signs and planets for 1) the house ruled by Leo, 2) the house hosting your Sun, 3) your Fifth house, and 4) your Eighth house.
 
 Each of these houses connects to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible combination in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another to illuminate a core theme or field of interest.
 
-*INSERT TABLE HERE*
+INSERT TABLE HERE
 
 Complete the following prompts for each of the combinations you listed in the table above, even your empty houses. But remember, this isn't a social studies test! Focus on the meanings that matter most to you rather than on getting the astrological definitions correct (whatever that is).
 
@@ -26,10 +26,8 @@ To put the power of this placement into action, they decide to clean out their c
 
 ## PRIORITIZE YOUR PLACEMENTS
 
-The number of placements and therefore interpretations this exercise covers sometimes gets overwhelming, especially if you have a stellium in one or more houses. We have three pieces of advice to make it more manageable:
+The number of placements and therefore interpretations this exercise covers sometimes gets overwhelming, especially if you have a stellium in one or more houses. To make it more manageable:
 
 1. Let your intuition tell you which placements to focus on first. Use curiosity as a method to prioritize.
 2. Analyze the placements featuring the Classical Planets before adding outer planets or asteroids.
-3. Break up your analysis over the year! Your natal chart will never change, so you don't have a deadline.
-
-If you want to join the newsletter, you could plan to interpret your placements as we go through the astrological seasons. Analyze the planets or houses related to each sign as we cover it in our mini-guides. Or use this method without joining, just find a way to escape the trap of perfectionism and keep having fun.
+3. Break up your analysis over the year! You could plan to interpret your placements as we go through the astrological seasons in our newsletter.
