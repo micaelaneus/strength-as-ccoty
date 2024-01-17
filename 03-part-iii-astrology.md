@@ -60,6 +60,7 @@ Signs have associated alchemical elements: Fire, Water, Earth, and Air. Every *e
 We do not add polarity to signs or houses because we have yet to find a binary that carries more meaning than baggage. We mention them because you will encounter many versions in other astrological sources: masculine-feminine, yin-yang, light-dark, active-passive, positive-negative, etc. Our exercises and spreads do not include them, but you could easily add them to your interpretation.
 
 ## CORRESPONDENCES OF THE STRENGTH ARCHETYPE
+![astro_correspondences_table](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/60aa0615-7766-469f-b452-fcb8a872c310)
 
 SIGN - Leo
 
