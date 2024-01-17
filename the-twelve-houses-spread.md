@@ -4,16 +4,18 @@ Zodiac spreads take us on a journey from our innermost selves in the First House
 
 ![TAROT_ The Twelve Houses Spread](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/9c6b1f36-c5d5-444d-b9f5-dd669d59a1c9)
 
-
 ## BEFORE YOU BEGIN
+
 This spread is complex, not gonna lie. Reading it gets both easier and richer the more you understand astrology and your natal chart, and puzzling through this spread is one way to build that expertise. Hang in there.
-Zodiac spreads have moments when they feel most helpful. First, the start of a new year in whatever calendars you use (Gregorian, lunar, Jewish, etc.) as well as at the spring equinox (aka the astrological “new year”) and your birthday. Secondly, any other time you experience a major reset event such as a big move, change in your relationship status, career shift, etc.
 
-We do not recommend zodiac spreads at the birth/adoption of a child *when done for the child.* Tarot readings generally cannot be done without the consent and participation of one key subject, anyway, and this spread isn’t meant to deliver lifelong predictions. (Get a natal chart analysis instead.) However, this spread may be very helpful for the new parent to get insight into this period of their own lives.
+Zodiac spreads have moments when they feel most helpful. First, the start of a new year in whatever calendars you use (Gregorian, lunar, Jewish, etc.) as well as at the spring equinox (aka the astrological new year) and your birthday. Secondly, any other time you experience a major reset event such as a big move, change in your relationship status, career shift, etc.
 
-Lastly, we fully encourage you to riff on the prompts below to match any question you have for that house. For instance, someone who recently “came out” (in any sense of the phrase) may have a very clear concern to explore in their First House. We preferred to give a cluster of questions rather than an explicit label for the card placements so your intuition has room to wiggle. Answer the question that feels most resonant to you.
+We do not recommend zodiac spreads at the birth/adoption of a child *when done for the child.* Tarot readings generally cannot be done without the consent and participation of one key subject, anyway, and this spread isn’t meant to deliver lifelong predictions. (Get a natal chart analysis instead.) This spread is better used by the new parent to get insight into this period of their own lives.
+
+Lastly, we fully encourage you to riff on the prompts below to match any question you have for that house. For instance, someone who recently “came out” (in any sense of the phrase) may have a very clear concern to explore in their First House. We preferred to give a cluster of questions rather than an explicit label for the card placements so your intuition has room to wiggle. Answer the question that feels most resonant to you, or write your own.
 
 ## READING THE TWELVE HOUSES
+
 If your practice contains a ritual opener such as casting a circle or calling in guides, perform it now. Take a moment to center yourself with a few deep breaths and settle into your body. Articulate your query mentally or in writing to strengthen and focus your intention.
 
 When you feel ready, shuffle and cut the cards. Place all twelve cards face down, starting at the First House and moving counter-clockwise to pull a card for each successive house up to the Twelfth. Placing all cards face-up at once will overwhelm your reading, believe! Lay out the complete map and then take the journey one step at a time.
@@ -56,7 +58,7 @@ What pattern can I release? What energy do I need to call in or let flow out of 
 
 Do my actions align with my ethics? How open am I (or should I be) for experiences that expand my perspective like travel, education, discomfort? Am I in a rut? Or is this a season for trust? What can I teach others?
 
-### CARD 10 - TENTH HOUSE OF LEGACIES - MEDIUM COELI (MC)
+### CARD 10 - TENTH HOUSE OF LEGACIES - MEDIUM COELI (MC) OR MIDHEAVEN
 
 Have I honored my responsibilities? What area of my life merits more discipline, and which needs less compulsive fixation? Do I set and keep meaningful goals appropriately? Where should I lighten up? Or maybe buckle down?
 
@@ -74,29 +76,30 @@ Do a vibe check on the groupings and placements discussed below. Look for associ
 
 ### HOUSE GROUPINGS
 
-Dividing the sky into twelve parts creates a symmetry to explore for even more insight. Houses that oppose or mirror one another form groups with significance:
+Dividing the sky into twelve parts creates a symmetry to explore for even more insight. Houses that oppose or mirror one another form subgroups with their particular significance:
 
 * Angular Houses (1, 4, 7, 10) represent areas to take initiative and embrace greater prominence.
 * Succedent Houses (2, 5, 8, 11) show us places to trust for stability and support when we focus.
 * Cadent Houses (3, 6, 9, 12) imply fluidity. Here, we benefit from adaptivity and cooperation.
 
 ### THE ANGLES
+
 We indicated where the Ascendant, Descendant, Imum Coeli (IC), and Medium Coeli (MC) sit in the spread because they too carry unique significance that may enhance your reading:
 
-* Ascendant reflects your point of view, whether conscious or unconscious.
-* IC might indicate an energy/resource/relationship that is a stabilizing foundation or entrenched pattern.
-* Descendant highlights the influence of (or impact on) your relationship/s.
-* MC emphasizes the power of legacies (inheritances we receive or bestow, reputations, etc.)
+* The Ascendant reflects your point of view, whether conscious or unconscious.
+* The IC might indicate an energy/resource/relationship that is a stabilizing foundation or entrenched pattern.
+* The Descendant highlights the influence of (or impact on) your relationship/s.
+* The MC emphasizes the power of legacies (inheritances we receive or bestow, reputations, etc.)
 
 ### OPPOSING HOUSES
 
-Astrologers offer one further–and simpler!– grouping to consider, the opposing house pairs:
+Astrologers offer one further grouping to consider, the opposing house pairs:
 
 * Identity and Ally (Houses 1 and 7) connect a part of yourself with a supporter.
-* Cause and Effect (Houses 2 and 8) show how your choice has ripple effects.
+* Cause and Effect (Houses 2 and 8) show the ripple effects of your choices.
 * Friends and High Places (Houses 3 and 9) identify connections and how they shape your opportunities.
 * Intention and Impact (Houses 4 and 10), aka “how it started” and “how it's going”
 * Spark and Bellows (Houses 5 and 11) illuminate your creative spark and who/what fans its flames.
 * Body and Soul (Houses 6 and 12) unite your embodied self and inner realms.
 
-Calling these houses opposing implies antagonism and contradiction; we prefer to call them *complementing*. They’re more dynamic duo than arch-enemies and hey, sometimes couples fight! That doesn’t mean they don’t love you. 
+Calling these houses *opposing* implies antagonism and contradiction; we prefer to call them *complementing.* They’re more dynamic duo than arch-enemies and hey, sometimes couples fight! That doesn’t mean they don’t love you.

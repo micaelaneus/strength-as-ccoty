@@ -2,47 +2,59 @@
 
 Contents
 
-[How to Use This Guide](how-to-use-this-guide.md)
-* Work With Us Throughout the Year
+[Welcome to Our Strength Year](00-getting-started.md)
+
+* How to Use This Guide
 * A Brief Introduction to Reading Tarot
 * Working in the Open Circle
+* [JOURNAL: The Chariot Rides On](journal-the-chariot-rides-on.md)
   
-[PART I: Strength in the Tarot](part-i-strength-in-the-tarot.md)
+[PART I: Tarot](01-part-i-tarot.md)
+
 * Symbols of the Archetype
 * Interpretation
   * Shadow Aspects
   * In Readings
-* [JOURNAL: The Chariot Rides On](the-chariot-rides-on.md)
+* [JOURNAL: Stronger Starts](journal-stronger-starts.md)
 * [TAROT: The Lemniscate Spread](the-lemniscate-spread.md)
   
-[PART II: Ritual Strategies](part-ii-ritual-strategies.md)
-* Mineral & Plant Allies
-* Create Powerful Altars
-* Visit Powerful Altars
-* Cast a Spell or Perform a Ritual
+[PART II: Ritual](02-part-ii-ritual.md)
+
+* Shaping Sacred Space
+* Ritual Elements & Strategies
+  * Mineral & Plant Allies
+  * Altar Strategies
+  * Places of Power
+  * Spellcraft
 * [RITUAL: The Lion's Remedy](the-lions-remedy-ritual.md)
   
-[PART III: Astrology](part-iii-astrology.md)
-* The Sun & Leo
-* Fire & The Suit of Wands
-* Strength in Your Natal Sky
-* [JOURNAL: Ever Stronger Strengths](ever-stronger-strengths.md)
+[PART III: Astrology](03-part-iii-astrology.md)
+
+* Understanding Placements
+* Astrological Correspondences of the Strength Archetype
+  * The Sun & Leo
+  * Strength in the Fifth & Eighth Houses
+  * Fire & The Suit of Wands
+* [JOURNAL: Strength in Your Natal Sky](journal-strength-in-your-natal-sky.md)
 * [TAROT: The Twelve Houses Spread](the-twelve-houses-spread.md)
   
-[PART IV: Strength & Your Card of the Year](part-vi-strength-and-your-coty.md)
+[PART IV: Your Card of the Year](04-part-vi-your-coty.md)
+
 * Select an Archetype for 2024
 * [JOURNAL: Strength & Your Card of the Year](journal-strength-and-your-coty.md)
 * [TAROT: The Mutual Aid Spread](the-mutual-aid-spread.md)
   
-[PART V: Open Circle Work](part-v-open-circle-work.md)
+[PART V: The Open Circle](05-part-v-the-open-circle.md)
+
 * Embrace Embodiment
-* Gather Council
 * Form an Affinity Group
+* Gather Council
 * Re-enchant Your Life
 * [CHECKLIST: Gearing Up for Your Strength Year](gearing-up-for-your-strength-year.md)
 * [Closing](closing.md)
   
 [Resources & References](resources-and-references.md)
+
 * Tarot & Astrology References
 * Other Tarot Decks in the RWCS Lineage
 * Ethical Sources for Ritual Elements
