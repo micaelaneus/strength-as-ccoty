@@ -69,11 +69,10 @@ Contents
 
 Copyright © 2024 Touchwood Tarot. All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
 
-For permissions requests, please email the publisher at mica@touchwoodtarot.com
+For permissions requests, please email the publisher at <mica@touchwoodtarot.com>
 
 ### DISCLAIMER
 
 This work is for your entertainment and enjoyment. Results are not guaranteed. Spells are not guaranteed to work. Accuracy of divination is not guaranteed. Touchwood Tarot does not take responsibility for any events that take place after our working together. The results you achieve from this work are up to you, and we take no responsibility for them. Participating in this workshop cannot take the place of working with a licensed medical or psychological professional, or a financial or legal advisor. Please get help and support if you need it.
 
-**If you are experiencing a medical or psychological emergency, please call 9-11 or contact https://suicidepreventionlifeline.org/**
- 
+**If you are experiencing a medical or psychological emergency, please call 9-11 or contact <https://suicidepreventionlifeline.org/>**
