@@ -34,11 +34,11 @@ A journal is any collection of paper you don't lose. Turn that idea into an art 
 
 We see distinct benefits to starting a tarot journal separate from any other journal or grimoire you might keep. First, viewing past cards and spreads together often reveals patterns or trends that escape notice when sprinkled across other notes. Over time, you build up a custom body of interpretations based on your intuitive interests that will dazzle you in retrospect. You also get the practical benefit of flipping back to a reading done at the start of a project or relationship after time has passed, giving you an accurate picture of where your mind was when things started. Very useful for those who intend to learn from their experiences, or so we hear.
 
-Practical tips: date everything, name the source of a spread or interpretation because you will inevitably forget, and note any conditions (environment, mood, world events, health, etc.) that give meaningful context to your reading.
+Practical tips: date everything, name the source of a spread or interpretation, and note any conditions (environment, mood, world events, health, etc.) that give meaningful context to your reading.
 
 ### YOUR TAROT DECK
 
-Touchwood Tarot uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite, originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS deck to cover all these cases.
+This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite, originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS deck to cover all these cases.
 
 Many modern tarot artists have adapted the ideas and storylines of the RWCS deck to suit (sorry) their needs, creating a lineage that is compatible with this guide. See Resources and References for our recommendations. We strongly believe you will benefit from having a copy of the original illustrations on hand, but the Wikipedia entry for the deck has an image of each card as designed in 1909 for those without one.
 
