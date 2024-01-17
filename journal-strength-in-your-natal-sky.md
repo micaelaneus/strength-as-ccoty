@@ -6,7 +6,8 @@ Once you have it, note the signs and planets for 1) the house ruled by Leo, 2) t
 
 Each of these houses connects to the themes, struggles, and opportunities of an area of your life. Unfortunately, we can’t go into each possible combination in this guide (cough, newsletter) so you’ll have to look them up yourself or find an experienced astrologer. Feel out how the house, its ruling astrological sign, and any planetary bodies influence one another to illuminate a core theme or field of interest.
 
-INSERT TABLE HERE
+![astro_table](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/232d48ee-43f9-4f55-92af-ab1ae4c5b0a8)
+
 
 Complete the following prompts for each of the combinations you listed in the table above, even your empty houses. But remember, this isn't a social studies test! Focus on the meanings that matter most to you rather than on getting the astrological definitions correct (whatever that is).
 
