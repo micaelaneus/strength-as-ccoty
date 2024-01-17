@@ -9,7 +9,7 @@ Contents
 * Working in the Open Circle
 * [JOURNAL: The Chariot Rides On](journal-the-chariot-rides-on.md)
   
-[PART I: Strength in the Tarot](01-part-i-strength-in-the-tarot.md)
+[PART I: Tarot](01-part-i-tarot.md)
 
 * Symbols of the Archetype
 * Interpretation
@@ -18,7 +18,7 @@ Contents
 * [JOURNAL: Stronger Starts](journal-stronger-starts.md)
 * [TAROT: The Lemniscate Spread](the-lemniscate-spread.md)
   
-[PART II: Ritual Strategies](02-part-ii-ritual-strategies.md)
+[PART II: Ritual](02-part-ii-ritual.md)
 
 * Shaping Sacred Space
 * Ritual Elements & Strategies
@@ -38,13 +38,13 @@ Contents
 * [JOURNAL: Strength in Your Natal Sky](journal-strength-in-your-natal-sky.md)
 * [TAROT: The Twelve Houses Spread](the-twelve-houses-spread.md)
   
-[PART IV: Strength & Your Card of the Year](04-part-vi-strength-and-your-coty.md)
+[PART IV: Your Card of the Year](04-part-vi-your-coty.md)
 
 * Select an Archetype for 2024
 * [JOURNAL: Strength & Your Card of the Year](journal-strength-and-your-coty.md)
 * [TAROT: The Mutual Aid Spread](the-mutual-aid-spread.md)
   
-[PART V: Open Circle Work](05-part-v-open-circle-work.md)
+[PART V: The Open Circle](05-part-v-the-open-circle.md)
 
 * Embrace Embodiment
 * Form an Affinity Group
