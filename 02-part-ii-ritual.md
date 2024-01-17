@@ -26,32 +26,45 @@ As witches, we must practice again and again to sustain and renew our craft-- we
 
 ## SHAPING SACRED SPACE
 
-### INVOCATION
+Settle into your body. Slowing down and deepening your breaths helps relax the nervous system. Use any grounding somatic exercises in your repertoire, such as a body scan, tapping, or breathwork pattern. Take the time you need to get centered, resisting any urge to rush into the ritual. Focusing your mind and releasing extraneous thoughts or energies count as "real" witchcraft, we swear. 
 
-* Who, what, when, why
-* Examples:
-  * "On this full moon in Taurus, we gather together to consecrate a collective grimoire."
-  * "I come to this park where I played as a child to summon a lover who wants to start a family with me, empowered by Ostara's energy."
-  * "We signed the divorce papers this morning. May my ritual this afternoon cleanse this apartment of any stagnant energy that may block my healing."
+Find your way to a comfortable, yet alert position before announcing an intention for your work. To structure our intentions (also known as invocations), we form a sentence or two that names who, what (or why), and when we gather:
 
-* settle into your body
+* "On this full moon in Taurus, we gather together to consecrate a collective grimoire for."
+* "I come to this park where I played as a child to summon a lover who wants to start a family with me, empowered by Ostara's energy."
+* "We finalized the divorce papers this morning. May my ritual this afternoon cleanse this apartment of any stagnant energy that may block my healing."
+
+Clarifying your ritual invocation has the same benefit as having a solid query in a tarot reading: sharper focus, clearer answer. 
 
 Mark the transition into the ritual space by lighting a candle, invoking stone and plant allies, burning incense, or doing other ritual strategies. These elements help create a boundary between the ordinary and the sacred, setting this work apart from other day-to-day activities. You do not need any of them, however. Deep breaths and strong intentions work magic all by themselves.
 
-* invoke allies
+As you activate your ritual elements, you might call in any guides, ancestors, or other helpers to join your ritual. Invite them by name and tell them why you seek their presence. Since we are working with Strength this year, you might call in people who embody its themes. Example: “Grandma Jo, you dared to leave your husband despite society’s pressure to stay. Share your courage with me today.”
 
-An optional step is to call in any guides, ancestors, or other helpers. Invite them by name and tell them why you seek their presence. Since we are working with Strength this year, you might call in people who embody its themes. Example: “Grandma Jo, you dared to leave your husband despite society’s pressure to stay. Share your courage with me today.”
+You do not have to believe in an afterlife to call in helpers, only to have a desire to honor someone whose life inspires you. Another good option is to gather council as described in Part V: The Open Circle to root yourself into the ecological community. Acknowledge the indigenous people who stewarded the land before your arrival, as appropriate.
 
-If you have a method for casting a circle, calling the corners, etc. in your practice, perform it here.
+You might want to use your ritual elements to call the corners (or quarters), which refers to evoking the fourth cardinal directions, often with the title Guardian or Watchtower. The neopaganist movement known as Reclaiming popularized this technique decades ago, and we often use it-- but not in this guidebook, sorry. Find details in other sources, and look for our newsletter for our take.  
 
-Announce your reason for performing the ritual and dedicate the merits:
-*“I gather here to* [your purpose or a general desire], *and I dedicate any merits of my work to the highest good of all beings* [or name a recipient].”
+These actions (or your variations) constitute casting a circle, which refers to creating a psychological or magical container to perform magic. Casting a circle both cleanses and protects ritual space from the concerns and distractions of mundane life. Once opened, we announce the circle and dedicate the merits of the ritual by saying something like "Our circle is open! May the work we do be for the good of all beings."
 
-When your reflection feels complete, close your circle according to your practice or simply say something like:
+In this open circle, do your magical work mentioned in your invocation. Why limit yourself to "witchy stuff" like rituals, spells, or tarot readings? Use sacred space like a playground or therapist's office: outline a novel, have a difficult conversation, cry it out, make a vision board, etc.
 
-“May all helpers gathered here go in peace with my gratitude, and may the work done here be for the good of all. So concludes my ritual.”
+After concluding sacred business for the day, close up shop:
 
-Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life. As ye harm none, do as ye will!
+* Restate your intention as a completed task
+* Thank and release any helpers you invited
+* De-activate ritual elements: extinguish candles, pour out water, etc.
+* Repeat the dedication of your merits
+* Announce that you have closed your circle by saying something akin to “Our circle is open, yet unbroken”
+
+We like to shift the vibe immediately. Go outside, or at least open a window. Put on music, have a light meal, or take a shower. Chit-chat or cuddle your cat, but avoid social media,streaming content, or other things that will instantaneously re-scatter your mind.
+
+Experiment with the tools, sequence, and phrases until you find a combination that feels right, then stick with it for a while. We use ritual elements and strategies to entrain triggers (nice ones this time), and only attentive repetition alters how our nervous system and neurobiological conditioning. (Maybe the sacred space we shape was within us all along, aw!)
+
+Remember to schedule or otherwise prepare for any open-circle work that follows your ritual practice.
+
+Whew! Witchcraft takes effort, yes, but the rewards make it worthwhile. Celebrate and sustain yourself with rituals, great and small, and you will never get lost in the maze of modern life.
+
+As ye harm none, do as ye will!
 
 ## RITUAL ELEMENTS & STRATEGIES
 
