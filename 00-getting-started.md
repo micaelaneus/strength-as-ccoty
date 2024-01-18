@@ -2,19 +2,19 @@
 
 Thank you for joining a worldwide community of radical witches!
 
-We made this guide to working with Strength to serve your growth and well-being, as well as support your participation in collective movements. It blends tarot, ritual, and astrology into a holistic esoteric practice. When combined with an antiauthoritarian ethos and made manifest by principled direct action, we call this practice *radical witchcraft*.
+We made this guide to working with Strength to serve your growth and support your participation in collective movements. It blends tarot, ritual, and astrology into a holistic esoteric practice. When combined with an antiauthoritarian ethos and made manifest by principled direct action, we call this practice *radical witchcraft*.
 
 Working with the tarot requires imagination, introspection, and a willingness to explore our unconscious minds. Each card depicts scenes with rich symbolic meanings. Interpreting them broadens the range of possibilities we see for our inner lives, our relationships, and our presence in society. This capacity to unlock potential is why you may hear the 78 cards in a tarot deck referred to as *keys*. When we use ritual and reflection to turn each key, a door within our psyches swings open. Because every archetypal key fits a different door, the tarot gives us nearly infinite room to expand in every conceivable direction.
 
 Doing this work communally has special value, and that requires a shared key commonly called the Collective Card of the Year. We use the most popular method for determining this year's card: adding the digits of the year together and matching the sum (8) to an ordered list of 22 archetypes known as the Major Arcana.
 
-Because 2 + 0 + 2 + 4 = 8, we will work with the Eighth key, Strength, and honestly, we're so relieved! This card swoops in like a superhero right when we anticipate a series of political and ecological perils, but not quite like in the comics. No, we must do the hard work ourselves. What Strength gives us is inspiration, analytic tools, and a sense of focus that gives us a chance to get over the hurdles headed our way.
+Because 2 + 0 + 2 + 4 = 8, we will work with the Eighth Key, Strength, and honestly, we're so relieved! This card swoops in like a superhero right when we anticipate a series of political and ecological perils, but not quite like in the comics. No, we must do the hard work ourselves. Strength gives us is inspiration, and analytic tools to get over the hurdles headed our way.
 
-This first section lays out the essential equipment, concepts, and methods used throughout the next five parts, each devoted to activating the Strength archetype with a witchy tool. Saddle up those brooms, witches! It's time to ride.
+This introduction lays out the essential equipment, concepts, and methods used throughout the rest of the guidebook. Saddle up those brooms, witches! It's time to ride.
 
 ## HOW TO USE THIS GUIDE
 
-We present five methodologies for working with Strength that both reinforce and complicate one another, each in its own chapter, along with structured exercises to familiarize you with how to put them into action.
+In the following sections, we present five methods for working with Strength along with structured exercises to familiarize you with how to put them into action.
 
 **Part I: Tarot** covers the symbols and traditional interpretations of the card including its shadows.
 
@@ -32,7 +32,7 @@ You need only three essential tools to use this guide: a journal, a tarot deck, 
 
 A journal is any collection of paper you don't lose. Turn that idea into an art project or stick with spiral-bound cheapies according to your taste.
 
-We see distinct benefits to starting a tarot journal separate from any other journal or grimoire you might keep. First, viewing past cards and spreads together often reveals patterns or trends that escape notice when sprinkled across other notes. Over time, you build up a custom body of interpretations based on your intuitive interests that will dazzle you in retrospect. You also get the practical benefit of flipping back to a reading done at the start of a project or relationship after time has passed, giving you an accurate picture of where your mind was when things started. Very useful for those who intend to learn from their experiences, or so we hear.
+We see distinct benefits to starting a tarot journal separate from any other journal or grimoire you might keep. First, reviewing your readings in context often reveals patterns or trends that escape notice when the information gets sprinkled among other notes. Over time, you build up a custom body of interpretations based on your intuitive interests that will dazzle you in retrospect. You also get the practical benefit of flipping back to a reading after time has passed to reflect on your interpretation at the start of a project or relationship compared to later in its development. Very useful for those who intend to learn from their experiences, or so we hear.
 
 Practical tips: date everything, name the source of a spread or interpretation, and note any conditions (environment, mood, world events, health, etc.) that give meaningful context to your reading.
 
@@ -40,11 +40,11 @@ Practical tips: date everything, name the source of a spread or interpretation, 
 
 This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite, originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS deck to cover all these cases.
 
-Many modern tarot artists have adapted the ideas and storylines of the RWCS deck to suit (sorry) their needs, creating a lineage that is compatible with this guide. See Resources and References for our recommendations. We strongly believe you will benefit from having a copy of the original illustrations on hand, but the Wikipedia entry for the deck has an image of each card as designed in 1909 for those without one.
+Many modern tarot artists have adapted the ideas and storylines of the RWCS deck to suit (sorry) their needs, creating a lineage that is compatible with this guide. See *Resources and References for our recommendations. We strongly believe you will benefit from having a copy of the original illustrations on hand, but the Wikipedia entry for the deck has an image of each card as designed in 1909 for those without one.
 
 ### YOUR NATAL CHART
 
-A natal chart captures the position of the planets overhead at the time and place of your birth. Planets include all the ones My Very Educated Mother taught you and several minor orbiting bodies (asteroids), plus a few calculated points in the sky that don't correspond to a physical body. It's not necessary to understand much about your natal chart or astrology to follow this guidebook. We walk you through the essentials, and the rest is easily found online or in books.
+A *natal chart* captures the position of the planets overhead at the time and place of your birth. Planets include all the ones My Very Educated Mother taught you and several minor orbiting bodies (asteroids), plus a few calculated points in the sky that don't correspond to a physical body. It's not necessary to understand much about your natal chart or astrology to follow this guidebook. We walk you through the essentials, and the rest is easily found online or in other sources.
 
 Many methods for calculating your charts exist. We recommend using Whole Sign Houses (a selectable option in nearly all online chart sources). You need to know the city and the exact time of your birth.
 
@@ -68,7 +68,7 @@ Whether or not you use spread, you need a well-articulated question to focus and
 
 Good queries ask for help in making plans or shaping processes, not for a promised outcome, because the responsibility for realizing our potential always lies with us. Only one witch got to the ball in a pumpkin that we know of; the rest of us have to hoof it.
 
-For the same reason, a useful query sticks to a timeframe where you have the power to act, either in the present or near future in most cases. Asking *“Will I be a famous author?”* before you even pick up a pencil won’t yield useful information. Too much work lies between you and the goal. Try, *“What can I put energy into that would help me improve as a writer?”* and then get out your pencil sharpener!
+For the same reason, a useful query sticks to a timeframe where you have the power to act, either in the present or near future in most cases. Asking *“Will I be a famous author?”* before you even pick up a pencil won’t yield useful information. Too much work lies between you and the goal. Try, *“What can I put energy into that would help me improve as a writer?”* 
 
 ### PULL A CARD
 
