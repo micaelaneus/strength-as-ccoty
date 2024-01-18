@@ -1,6 +1,6 @@
 # JOURNAL: The Chariot Rides On
 
-Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience. This journal exercise allows you to review the year through the lens of The Chariot, the collective card of the year in 2023, even if you did not consciously work with the archetype during the last twelve months.
+Contrary to the cliche, we don’t learn from experience— we learn by reflecting on experience. This journal exercise allows you to review the year through the lens of The Chariot, our collective card in 2023, even if you did not consciously work with the archetype during the last twelve months.
 
 ![07chariot](https://github.com/micaelaneus/strength-as-ccoty/assets/5696026/78db8324-9d16-4d63-9c2e-015100a391d8)
 
@@ -48,7 +48,7 @@ Getting more esoteric, name any emotional or spiritual breakthroughs, mental hea
 
 *Places of effort and over-coming; obstructed energies or desires; momentum and inertia.*
 
-Take a deep breath and remember points when exasperation, rage, or protective apathy took over. Track numbing or dissociative methods, plus the ruts and re-runs you fell into over the year.
+Take a deep breath and remember points in the year when exasperation, rage, or protective apathy took over. Track numbing or dissociative methods, plus the ruts and re-runs you fell into over the year.
 
 1. What crushed me? How do I feel about how I took care of myself after?
 
