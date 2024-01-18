@@ -9,7 +9,7 @@ Contents
 * Working in the Open Circle
 * [JOURNAL: The Chariot Rides On](journal-the-chariot-rides-on.md)
   
-[PART I: Tarot](01-part-i-tarot.md)
+[PART I: Tarot](01-part-i-the-tarot.md)
 
 * Symbols of the Archetype
 * Interpretation
