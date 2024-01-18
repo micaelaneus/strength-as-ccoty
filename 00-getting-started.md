@@ -1,88 +1,86 @@
-# WELCOME TO OUR STRENGTH YEAR
+WELCOME TO OUR STRENGTH YEAR
 
 Thank you for joining a worldwide community of radical witches!
 
-We made this guide to working with Strength to serve your growth and support your participation in collective movements. It blends tarot, ritual, and astrology into a holistic esoteric practice. When combined with an antiauthoritarian ethos and made manifest by principled direct action, we call this practice *radical witchcraft*.
+We made this guide to working with Strength to serve your growth and support your participation in collective movements. It blends tarot, ritual, and astrology into a holistic esoteric practice. When combined with an antiauthoritarian ethos and made manifest by principled direct action, we call this practice radical witchcraft.
 
-Working with the tarot requires imagination, introspection, and a willingness to explore our unconscious minds. Each card depicts scenes with rich symbolic meanings. Interpreting them broadens the range of possibilities we see for our inner lives, our relationships, and our presence in society. This capacity to unlock potential is why you may hear the 78 cards in a tarot deck referred to as *keys*. When we use ritual and reflection to turn each key, a door within our psyches swings open. Because every archetypal key fits a different door, the tarot gives us nearly infinite room to expand in every conceivable direction.
+Working with the tarot requires imagination, introspection, and a willingness to explore our unconscious minds. Each card depicts scenes with rich symbolic meanings. Interpreting them broadens the range of possibilities we see for our inner lives, our relationships, and our presence in society. This capacity to unlock potential is why you may hear the 78 cards in a tarot deck referred to as keys. When we use ritual and reflection to turn each key, a door within our psyches swings open. Because every archetypal key fits a different door, the tarot gives us nearly infinite room to expand in every conceivable direction.
 
 Doing this work communally has special value, and that requires a shared key commonly called the Collective Card of the Year. We use the most popular method for determining this year's card: adding the digits of the year together and matching the sum (8) to an ordered list of 22 archetypes known as the Major Arcana.
 
-Because 2 + 0 + 2 + 4 = 8, we will work with the Eighth Key, Strength, and honestly, we're so relieved! This card swoops in like a superhero right when we anticipate a series of political and ecological perils, but not quite like in the comics. No, we must do the hard work ourselves. Strength gives us is inspiration, and analytic tools to get over the hurdles headed our way.
+Because 2 + 0 + 2 + 4 = 8, we will work with the Eighth Key, Strength, and honestly, we're so relieved! This card swoops in like a superhero right when we anticipate a series of political and ecological perils, but not quite like in the comics. No, we must do the hard work ourselves. What Strength gives us is inspiration, analytic tools, and a sense of focus that gives us a chance to get over the hurdles headed our way.
 
-This introduction lays out the essential equipment, concepts, and methods used throughout the rest of the guidebook. Saddle up those brooms, witches! It's time to ride.
+This introduction lays out the essential equipment, concepts, and methods used throughout the rest of the guidebook.  Saddle up those brooms, witches! It's time to ride.
 
-## HOW TO USE THIS GUIDE
+HOW TO USE THIS GUIDE
 
 In the following sections, we present five methods for working with Strength along with structured exercises to familiarize you with how to put them into action.
 
-**Part I: Tarot** covers the symbols and traditional interpretations of the card including its shadows.
+Part I: The Tarot covers the symbols and traditional interpretations of the card including its shadows.
 
-**Part II: Ritual** shares strategies to amplify your tarot practice with supportive elements like ecological allies and spellcraft.
+Part II: Ritual shares strategies to amplify your tarot practice with supportive elements like ecological allies and spellcraft.
 
-**Part III: Astrology** gives you the means to personalize Strength using your natal chart as a lens into your psychological evolution.
+Part III: Astrology gives you the means to personalize Strength using your natal chart as a lens into your psychological evolution.
 
-**Part IV: Your Card of the Year** shows you how to find and then incorporate a second archetype from the Major Arcana as derived from your birth date.
+Part IV: Your Card of the Year shows you how to find and then incorporate a second archetype from the Major Arcana as derived from your birth date.
 
-**Part V: The Open Circle** shows you how to take Strength into your daily life, and then all the way into the streets. We explain this concept below.
+Part V: The Open Circle contains ideas on how to take Strength into your daily life, and then all the way into the streets. We explain this concept in more detail below.
 
 You need only three essential tools to use this guide: a journal, a tarot deck, and your astrological natal chart.
 
-### YOUR JOURNAL
+YOUR JOURNAL
 
-A journal is any collection of paper you don't lose. Turn that idea into an art project or stick with spiral-bound cheapies according to your taste.
-
-We see distinct benefits to starting a tarot journal separate from any other journal or grimoire you might keep. First, reviewing your readings in context often reveals patterns or trends that escape notice when the information gets sprinkled among other notes. Over time, you build up a custom body of interpretations based on your intuitive interests that will dazzle you in retrospect. You also get the practical benefit of flipping back to a reading after time has passed to reflect on your interpretation at the start of a project or relationship compared to later in its development. Very useful for those who intend to learn from their experiences, or so we hear.
+A journal is any collection of paper you don't lose. Turn that idea into an art project or stick with spiral-bound cheapies according to your taste. 
 
 Practical tips: date everything, name the source of a spread or interpretation, and note any conditions (environment, mood, world events, health, etc.) that give meaningful context to your reading.
 
-### YOUR TAROT DECK
+We see distinct benefits to starting a tarot journal separate from any other journal or grimoire you might keep. Reviewing past readings in one place reveals patterns or trends that escape notice when the same information gets sprinkled among other notes. With time, you build up a custom body of interpretations based on your intuitive interests. You also get the practical benefit of flipping back to a reading after time has passed to reflect on your mindset at the start of a project or relationship compared to later in its development. Very useful for those who intend to learn from their experiences, or so we hear.
 
-This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite, originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS deck to cover all these cases.
+YOUR TAROT DECK
 
-Many modern tarot artists have adapted the ideas and storylines of the RWCS deck to suit (sorry) their needs, creating a lineage that is compatible with this guide. See *Resources and References for our recommendations. We strongly believe you will benefit from having a copy of the original illustrations on hand, but the Wikipedia entry for the deck has an image of each card as designed in 1909 for those without one.
+This guide uses the classic deck illustrated by Pamela Coleman Smith that comes with the “little white book” of interpretations written by Arthur Edward Waite, originally published in 1909 by Rider & Son of London. You will hear it called by some combination of those names: the Rider-Waite, the Waite-Smith, or even the Rider-Waite-Coleman-Smith deck are all common variants. We refer to it as the RWCS deck to cover all these cases. 
 
-### YOUR NATAL CHART
+Many modern tarot artists have adapted the ideas and storylines of the RWCS deck to suit (sorry) their needs, creating a lineage that is compatible with this guide. See Resources and References for our recommendations. We strongly believe you will benefit from having a copy of the original illustrations on hand, but the Wikipedia entry for the deck has an image of each card as designed in 1909 for those without one.
 
-A *natal chart* captures the position of the planets overhead at the time and place of your birth. Planets include all the ones My Very Educated Mother taught you and several minor orbiting bodies (asteroids), plus a few calculated points in the sky that don't correspond to a physical body. It's not necessary to understand much about your natal chart or astrology to follow this guidebook. We walk you through the essentials, and the rest is easily found online or in other sources.
+YOUR NATAL CHART
+
+A natal chart captures the position of the planets overhead at the time and place of your birth. Planets include all the ones My Very Educated Mother taught you and several minor orbiting bodies (asteroids), plus a few calculated points in the sky that don't represent a physical body. It's not necessary to understand much about your natal chart or astrology to follow this guidebook. We walk you through the essentials, and the rest is easily found online or in books.
 
 Many methods for calculating your charts exist. We recommend using Whole Sign Houses (a selectable option in nearly all online chart sources). You need to know the city and the exact time of your birth.
+Get a free chart that's not too ugly at Astro-Charts: https://astro-charts.com/tools/new/birth-chart/
 
-Get a free chart that's not too ugly at Astro-Charts: <https://astro-charts.com/tools/new/birth-chart/>
-
-## A BRIEF INTRODUCTION TO READING TAROT
+A BRIEF INTRODUCTION TO READING TAROT
 
 It takes about three minutes to master the basics of reading the cards: form a question in your mind, pull a card, and then interpret its meaning. Of course, you’ll get more from tarot by taking each of those steps seriously. Let’s go through them.
 
-### SET THE SCENE
+SET THE SCENE
 
 First, you don’t need a tricked-out altar to read tarot. We adore the aesthetics, of course, but the magic comes from centering yourself. If incense and candles get you there, go for it! But never believe that your intuitive practices require them.
 
-Nevertheless, you will want to create a space that protects your concentration and sets this time apart from quotidian life. Witches call this opening or casting a circle, and **Part II: Ritual** discusses these types of ritual openers in more detail. For now, simply saying *"My circle is open"* works. When your reading or ritual ends, close the circle with a similar phrase.
+Nevertheless, you will want to create a space that protects your concentration and sets this time apart from quotidian life. Witches call this opening or casting a circle, and Part II: Ritual discusses these types of ritual openers in more detail. For now, simply saying "My circle is open" works. When your reading or ritual ends, close the circle with a similar phrase.
 
-A *tarot spread* is a predetermined order for pulling and placing cards in an arrangement, usually with a theme or intention. Each combination of a label or prompt with a position in the spread is called a *placement*, and it influences how we interpret that card. The Celtic Cross remains the world champion of famous spreads, with second place going to the humble Past-Present-Future three-card spread. Use them judiciously: they should serve as scaffolds for our practice, not as substitutes for our intuition.
+A tarot spread is a predetermined order for pulling and placing cards in an arrangement, usually with a theme or intention. Each combination of a label or prompt with a position in the spread is called a placement, and it influences how we interpret that card. The Celtic Cross remains the world champion of famous spreads, with second place going to the humble Past-Present-Future three-card spread. Use them judiciously: they should serve as scaffolds for our practice, not as substitutes for our intuition.
 
-### FORM A QUERY
+FORM A QUERY
 
-Whether or not you use spread, you need a well-articulated question to focus and direct your power. We call this central question or topic the *query* in tarot-speak and the effort you put into forming a good one will determine the quality of the answer you receive.
-
+Whether or not you use spread, you need a well-articulated question to focus and direct your power. We call this central question or topic the query in tarot-speak and the effort you put into forming a good one will determine the quality of the answer you receive.
 Good queries ask for help in making plans or shaping processes, not for a promised outcome, because the responsibility for realizing our potential always lies with us. Only one witch got to the ball in a pumpkin that we know of; the rest of us have to hoof it.
 
-For the same reason, a useful query sticks to a timeframe where you have the power to act, either in the present or near future in most cases. Asking *“Will I be a famous author?”* before you even pick up a pencil won’t yield useful information. Too much work lies between you and the goal. Try, *“What can I put energy into that would help me improve as a writer?”* 
+For the same reason, a useful query sticks to a timeframe where you have the power to act, either in the present or near future in most cases. Asking “Will I be a famous author?” before you even pick up a pencil won’t yield useful information. Too much work lies between you and the goal. Try, “What can I put energy into that would help me improve as a writer?” 
 
-### PULL A CARD
+PULL A CARD
 
 Tarot lore contains all manner of advice and prohibitions on handling cards. You will hear rules about how to shuffle and cut the deck, who may touch a deck, how to store the deck, the meaning of dropped cards, the special power of the bottom card, etc. We advise you to ditch anything that diminishes your desire to get your cards out.
 
-Don't "follow rules"-- set sacred boundaries around your witchcraft to protect and uplift its power. Folks outside the circle may not be able to distinguish your boundary from a rule, but the vibe inside the circle feels very different.
+Don't "follow rules”— set sacred boundaries around your witchcraft to protect and uplift its power. Folks outside the circle may not be able to distinguish your boundary from a rule, but the vibe inside the circle feels very different.
 
-That said, you would do well to observe a few common practices. First, you must shuffle the deck thoroughly between readings. Divide the deck into three approximately equal stacks (i.e., *cut the deck*), then re-join the deck by picking the stacks back up in a different order than you laid them down. Then take cards one-by-one from the top, placing them down in the shape of the spread. If pulling cards as part of a freewheeling reflection without a spread, repeat this process when you change topics. The cards need that touch of chaos to work their magic, so frequent and ecstatic shuffling is the only hard rule in our playbook.
+That said, you would do well to observe a few common practices. First, you must shuffle the deck thoroughly between readings. Divide the deck into three approximately equal stacks (i.e., cut the deck), then re-join the deck by picking the stacks back up in a different order than you laid them down. Take cards one by one from the top, placing them down in the shape of the spread. If pulling cards as part of a freewheeling reflection without a spread, repeat this process when you change topics. The cards need a touch of chaos to work their magic, so frequent and ecstatic shuffling is the only hard rule in our playbook.
 
-Well, we have one more rule: don't touch our cards! Decks collected as artwork or to support their creators ought to be shown off, but the deck we use in readings (our *working deck*) belongs in our hands and no others. We use libraries and community bikes, ride public transit, and bully houseguests into sleeping in our beds rather than on the couch— logically, we should share decks! Yet just as no amount of swapping spit would ever convince us to share a toothbrush with a lover, we simply cannot do it.
+Well, we have one more rule: don't touch our cards! Decks collected as artwork or to support their creators ought to be shown off, but the deck we use in readings (aka our working deck) belongs in our hands only. It makes no sense. We use libraries and community bikes, ride public transit, and bully houseguests into sleeping in our beds rather than on the couch— logically, we should share decks! Yet just as no amount of swapping spit would ever convince us to share a toothbrush with a lover, we simply cannot do it.
 
 You totally should, though.
 
-### INTERPRET THE CARD
+INTERPRET THE CARD
 
 Everyone refers to the writing of other tarot practitioners, even experts (barf) because we find inspiration in the diversity of thought. Never, ever apologize for looking up a card. At the same time, we encourage you to trust your intuition. Pay attention to your immediate impressions and associations, jot them down in your journal, and then look up what others have to say.
 
@@ -94,38 +92,29 @@ This school of thought means that even the most cheerful or sexy archetype has a
 
 For this reason, we don't read reversals. We let the placement tell us which facet of the archetype to consider. A placement that signifies "a supportive energy to increase in my life" suggests the so-called upright meanings, whereas "an obstacle to overcome" points us toward the shadow. Or read reversals! Many folks do, and most modern guidebooks will give reversed or shadow meanings.
 
-You will inevitably pull cards with disturbing imagery and intimidating descriptions that folks call *hard cards*. We firmly believe and have personally experienced that every card offers wise counsel in its own way. Pulling The Devil may indeed signal its negative meanings (compulsivity, codependence), but which would you prefer to see: a check engine light or smoke coming from the hood? And remember that a strong reading draws our attention to the path we’re walking, but it doesn’t control our steps.
+You will inevitably pull cards with disturbing imagery and intimidating descriptions that folks call hard cards. We firmly believe and have personally experienced that every card offers wise counsel in its own way. Pulling The Devil may indeed signal its negative meanings (compulsivity, codependence), but which would you prefer to see: a check engine light or smoke coming from the hood? And remember that a strong reading draws our attention to the path we’re walking, but it doesn’t control our steps. 
 
-Lastly, don’t try to use tarot to read minds– it’s not healthy, and it won’t work anyway.
+Lastly, don’t try to use tarot to read minds— it’s not healthy, and it won’t work anyway.
 
-## WORKING IN THE OPEN CIRCLE
+WORKING IN THE OPEN CIRCLE
 
-If you’ve opened a circle with others, then you have likely encountered a version of a classic closing phrase: the circle is open yet unbroken. It means that although our time in a ritual space necessarily ends and we return to “normal life”, we remain connected in a larger universal circle that encompasses all beings. How we act toward and speak to one another, and our moral obligations to the more-than-human world stay within this sacred space.
+If you’ve opened a circle with others, then you have likely encountered a version of a classic closing phrase: the circle is open yet unbroken. It means that although our time in a ritual space necessarily ends and we return to “normal life”, we remain connected in a larger universal circle that encompasses all beings. How we behave toward one another and our moral obligations to the more-than-human world forever remain within this sacred space.
 
-Witchcraft becomes radical when we embrace this open circle work as an integral part of our practice, as vital as the more esoteric elements like tarot or spellcraft. Radical witches seek to re-root our identities and cultures into ecological reality, long denied by mainstream Western philosophy. Our work advances a vision of interconnection between all beings to counteract the authoritarian and hierarchical paradigm destroying the world. This paradigm has wounded each of us individually, both warping our relationships with others with internalized -isms and instilling all sorts of shame and self-betrayal into our psyches. Radical witchcraft is one way of healing and transforming this damage.
+Witchcraft becomes radical when we embrace this open circle work as an integral part of our practice, as vital as the more esoteric elements like tarot or spellcraft. Radical witches seek to re-root our identities and cultures into ecological reality, long denied by mainstream Western philosophy. Our work advances a vision of interconnection between all beings to counteract the authoritarian and hierarchical paradigm now destroying the world. This paradigm has wounded each of us individually, both warping our relationships with others with internalized -isms and instilling all sorts of shame and self-betrayal into our psyches. Radical witchcraft is one way of healing and transforming this damage.
 
 Open-circle work means:
-
-* all forms of collective organizing
-
-* going to therapy or support groups
-
-* unlearning oppressive behaviors like white supremacy
-
-* decolonizing through land remediation and rematriation
-
-* exploring gender and sexuality beyond the binary
-
-* naming abusers and supporting survivors
-
-* abandoning punishment as a supposed source of safety
-
-* staying loyal to joy in times of deep discomfort
-
+all forms of collective organizing
+going to therapy or support groups
+unlearning oppressive behaviors like white supremacy
+decolonizing through land remediation and rematriation
+exploring gender and sexuality beyond the binary
+naming abusers and supporting survivors
+abandoning punishment as a supposed source of safety
+staying loyal to joy in times of deep discomfort
 We consider the open circle a non-negotiable aspect of our magic and you’ll see that phrase throughout this guide.
 
-## WORK WITH US THROUGHOUT THE YEAR
+WORK WITH US THROUGHOUT THE YEAR
 
 We begin publishing seasonal guides for working with Strength as our collective card of the year in March when Aries kicks off the new astrological year. Each guide offers tarot, astrology, and ritual inspiration in keeping with that season’s astrological sign. Our work belongs to the emerging discipline of radical witchcraft, though you might hear other names for the mix of paganism and anti-authoritarian politics we practice.
 
-Join us by subscribing to the newsletter at <www.touchwoodtarot.com>
+Join us by subscribing to the newsletter at www.touchwoodtarot.com
